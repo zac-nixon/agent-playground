@@ -1,8 +1,13 @@
 # test poem
 
-The wind whispers secrets to the sea,
-its breath a gentle tease, a mystery,
-waves dance in shadows, beneath twilight’s veil,
-their whispers echo through the night’s frail.
+Rise up, shake off the dust of waiting days,
+Set fire to the stillness, find your blaze,
+The world won't move until you make it move,
+So strike the earth and find your rhythm, find your groove.
+
+Do something wild, do something true,
+The only wasted life is one that never flew,
+Throw open every window, break the seal,
+Do something—anything—and make it real.
 
 _Requested in #26._
