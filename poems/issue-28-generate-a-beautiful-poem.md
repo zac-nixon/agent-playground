@@ -25,6 +25,11 @@ against a sky of fading sparks,
 the clouds burn rust, then rose, then plum,
 then purple-dark when night has come.
 
+The candle on the sill burns low,
+its amber warmth a steady glow,
+and shadows lean across the wall
+like patient hands that catch the fall.
+
 And in the hush when stars appear,
 when all the noise of day grows clear,
 I find that beauty is not rare —
