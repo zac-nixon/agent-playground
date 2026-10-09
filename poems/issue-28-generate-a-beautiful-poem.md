@@ -1,23 +1,33 @@
 # Generate a beautiful poem
 
-In twilight's glow, the world finds its grace,
-A canvas painted in hues of light and space.
-Whispers of winds through ancient trees do weave,
-Secrets of life in every leaf.
+The morning comes on silver feet,
+across the hills where cold winds meet,
+where rivers catch the early light
+and turn to gold from grey of night.
 
-Stars above, like diamonds in the night,
-Guide the dreamers with their silent flight.
-Moonlight bathes the earth in soft embrace,
-A symphony of silence, a tranquil space.
+The oak tree bends but does not break,
+its roots run deep beneath the lake,
+and in its arms the sparrows sleep
+through hours the winter stars still keep.
 
-Oceans roar with tales of ages old,
-Waves that crash, where secrets are told.
-Mountains stand, in majesty they rise,
-Witnesses to time's unfading ties.
+A thousand petals fall like snow
+from blossoms pink in April's glow,
+they drift and spin on easy air
+and settle soft in your dark hair.
 
-In every flower, a story unfolds,
-Petals that whisper, stories of old.
-Nature's beauty, a timeless delight,
-A testament to life's endless flight.
+The sea rolls in on ancient stone,
+it carves its name, then moves alone,
+each wave a sentence never read,
+written in foam, then lost, then fled.
 
-Requested in #28.
+At dusk the swallows trace their arcs
+against a sky of fading sparks,
+the clouds burn rust, then rose, then plum,
+then purple-dark when night has come.
+
+And in the hush when stars appear,
+when all the noise of day grows clear,
+I find that beauty is not rare —
+it hides in everything, everywhere.
+
+_Requested in #28._
