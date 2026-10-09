@@ -1,38 +1,43 @@
 # Generate a beautiful poem
 
-The morning comes on silver feet,
-across the hills where cold winds meet,
-where rivers catch the early light
-and turn to gold from grey of night.
+Before the sun has named the day,
+the meadow holds its breath in grey,
+and dew weighs down each blade of grass
+like tiny worlds of clouded glass.
 
-The oak tree bends but does not break,
-its roots run deep beneath the lake,
-and in its arms the sparrows sleep
-through hours the winter stars still keep.
+The heron stands on one still leg,
+a patience none of us can beg,
+while mist unravels on the stream
+and morning wakes from its own dream.
 
-A thousand petals fall like snow
-from blossoms pink in April's glow,
-they drift and spin on easy air
-and settle soft in your dark hair.
+The linden tree in summer hums
+with every bee that goes and comes,
+its blossoms spilling honey-scent
+on every hour the warm wind spent.
 
-The sea rolls in on ancient stone,
-it carves its name, then moves alone,
-each wave a sentence never read,
-written in foam, then lost, then fled.
+A child draws a horse in chalk
+along the grey cathedral walk,
+bold and bright and briefly there
+before the rain reclaims the square.
 
-At dusk the swallows trace their arcs
-against a sky of fading sparks,
-the clouds burn rust, then rose, then plum,
-then purple-dark when night has come.
+At harvest time the stubble fields
+glow amber-gold in what light yields,
+and starlings rise and fold and wheel
+like a single thought made real.
 
-The candle on the sill burns low,
-its amber warmth a steady glow,
-and shadows lean across the wall
-like patient hands that catch the fall.
+The lighthouse sweeps its patient arm
+across the dark, a long-loved charm,
+and sailors read that turning light
+as someone saying: all is right.
 
-And in the hush when stars appear,
-when all the noise of day grows clear,
-I find that beauty is not rare —
-it hides in everything, everywhere.
+The smell of bread, a open door,
+old music from the floor above,
+the way a stranger smiles — no more
+is needed for the proof of love.
+
+So beauty is no distant thing
+that asks of us our reckoning,
+it waits in heron, chalk, and foam —
+wherever you are, you are home.
 
 _Requested in #28._
