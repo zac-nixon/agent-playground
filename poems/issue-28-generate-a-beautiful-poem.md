@@ -30,6 +30,11 @@ a hush that softens every edge,
 it drapes in white the sleeping town
 and frosts the sparrow on the hedge.
 
+And still the light returns each year
+to coax the frozen world awake,
+to melt the cold and make it clear
+that beauty blooms for beauty's sake.
+
 So wonder lives in turning things—
 in bud and blaze and bare cold light,
 in the small and fleeting grace that clings
