@@ -1,33 +1,38 @@
 # Generate a beautiful poem
 
-The morning spills its golden light
-across the fields of dew-kissed grass,
-where sparrows lift in sudden flight
-and shadows fade like hourglass sand.
+The dawn pours honey through the trees
+and gilds the cobwebs hung with dew,
+where clover bends on amber knees
+and every blade of grass runs new.
 
-The rivers hum their ancient song
-through canyon walls of rust and stone,
-they carry what the years made long—
-the memory of seeds once sown.
+The rivers carry something old—
+a current deeper than the stone,
+they whisper what the mountains told
+to valleys learning to be grown.
 
-In autumn, leaves let go with grace,
-they spiral down on winds of change,
-each one a story, time, and place,
-from mountain peak to open range.
+In spring the cherry blossoms break
+like quiet laughter in the air,
+they do not mourn the wind they make
+but scatter beauty everywhere.
 
-The moon ascends her silver throne
-and bathes the world in quiet light,
-she tends the tides, the sea, the bone,
-and draws the dreaming close at night.
+In summer fields the crickets sing
+their one unwavering, endless note,
+as if the whole wide world could ring
+like music caught inside a throat.
 
-So let us pause and breathe it in—
-the bloom, the frost, the turning year,
-the endless places we have been,
-the endless wonders waiting here.
+The autumn turns its amber page
+and scribes the trees in rust and red,
+the leaves release without their rage,
+they fall as if they chose instead.
 
-For beauty lives in every hour,
-in storm cloud dark and sunrise bright,
-in the brief and trembling flower,
-in the long and lasting night.
+Then winter lays its silence down,
+a hush that softens every edge,
+it drapes in white the sleeping town
+and frosts the sparrow on the hedge.
+
+So wonder lives in turning things—
+in bud and blaze and bare cold light,
+in the small and fleeting grace that clings
+between the morning and the night.
 
 _Requested in #28._
