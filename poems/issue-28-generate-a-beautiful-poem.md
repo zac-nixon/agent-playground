@@ -43,7 +43,7 @@ to any creature, beast or man.
 At noon the light is everywhere
 and presses colour into air,
 yet still each clover holds its bloom
-like a small and listening room.
+like a small and quietly listening room.
 
 A hawk hangs on a hinge of wind
 and reads the field for what is pinned
@@ -103,7 +103,7 @@ before the first hand struck a light.
 The night draws in its counted breath
 and holds the hours between life and death:
 the stream, the ridge, the gate, the lane,
-the web still trembling with its rain.
+the web still trembling in the rain.
 
 And when the morning comes to lay
 its gold along the hill's cold grey,
