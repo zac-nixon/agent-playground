@@ -112,10 +112,10 @@ opens its white face to the late
 and silver hour, asking nothing more
 than to be what it was made for.
 
-The night gathers its dark and keeps
-everything it finds — the deeps
-of field and stream, the ridge, the lane,
-the web still bright with hanging rain.
+The night draws in its careful breath
+and holds the world between life and death —
+the field, the stream, the ridge, the lane,
+the web still trembling in the rain.
 
 The hours close their quiet hands
 around the field, the water, lands
