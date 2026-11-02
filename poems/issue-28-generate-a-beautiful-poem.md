@@ -73,7 +73,7 @@ open their soft eyes on the night.
 The stars appear, first one, then more,
 behind the darkening open door
 of sky — they need no key, no call,
-they have been there, and will be, all.
+they have always been there, and will be all.
 
 The owl's one note goes out and out
 across the valley like a doubt
