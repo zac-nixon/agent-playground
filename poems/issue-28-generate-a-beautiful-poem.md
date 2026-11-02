@@ -20,8 +20,8 @@ and will not be commanded — plain
 and patient as a thing that knows
 it only ever thins, not goes.
 
-The spider on the gate-post stays
-beside her web's cartography of days,
+The spider on the gate-post keeps
+her web's cartography while she sleeps,
 each thread a road between two points
 where night and morning share their joints.
 
