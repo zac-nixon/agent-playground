@@ -92,7 +92,7 @@ the final threads of one more day.
 
 A moth finds the unshuttered pane
 and circles back and back again,
-baoth the question and the flame,
+both the question and the flame,
 drawn to the light it cannot name.
 
 And so it turns, and so it goes,
