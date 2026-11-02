@@ -83,7 +83,7 @@ the ancient patience, older still.
 The owl unlocks one single note
 that empties slowly from its throat
 and fills the valley, wall to wall,
-with something held between call and fall.
+poised somewhere between call and fall.
 
 The moon lifts over the eastern ridge
 and silvers gate and road and bridge,
