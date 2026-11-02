@@ -10,6 +10,11 @@ and makes its bright declarative call,
 one phrase the whole field stops to hear,
 then everything resumes its year.
 
+The swifts come out to stitch the sky
+with threadless needles, low then high,
+each arc a stitch between two blues —
+the one they leave, the one they choose.
+
 The mist sits in the lower lane
 and will not be commanded — plain
 and patient as a thing that knows
@@ -40,15 +45,10 @@ by standing still in moving air,
 its eye a point of perfect grace
 that names the field below with care.
 
-The cattle in the corner field
-have found the shade and will not yield
-their good positions to the heat,
-their breath the summer's slow heartbeat.
-
-A clover hum of bees persists
-through all the golden-shouldered lists
-of afternoon, their industry
-a kind of deep simplicity.
+The clover lifts a listening bloom
+toward the bee that fills its room,
+and gives its sweetness without speech —
+the deepest things are past our reach.
 
 The light at four goes long and warm
 and leans against the barn and farm
