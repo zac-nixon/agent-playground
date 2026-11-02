@@ -11,7 +11,7 @@ before you know the door is wide —
 the world already stepped inside.
 
 The mist lifts off the lower ground
-without a colour and without a sound,
+without a colour, without a sound,
 and where it was, the grass stands clear,
 soaked through with everything the year
 has slowly given, blade by blade,
@@ -34,8 +34,8 @@ already half belonging there.
 
 A hawk tips one long wing and slips
 behind the hill. The silence dips
-and fills again like water will
-return to level, cold and still.
+and fills again the way that still
+water returns to find its level.
 
 The afternoon unrolls its light
 across the field, unhurried, bright,
@@ -68,8 +68,8 @@ and then another, and then more —
 a patience none of us asked for.
 
 The owl releases one clear note
-that opens like a door the throat
-of the valley holds until
+that opens like a door; the throat
+of the valley holds it until
 it folds into the general still.
 
 The moon lifts over the eastern ridge
