@@ -82,8 +82,8 @@ the dark where all the field-paths merge.
 
 A moth finds the unshuttered glass
 and makes its small arrival — past
-the need to name it lost or found;
-only drawn to light, as we are drawn.
+the need to name it lost or found,
+only drawn to light, as we are drawn to ground.
 
 The badger crosses the cold track
 and does not think to carry back
