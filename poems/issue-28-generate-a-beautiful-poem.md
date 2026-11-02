@@ -102,7 +102,7 @@ pauses once at the low stone ledge,
 then crosses to the open, slow,
 as if she trusts the dark to know.
 
-A bloom beside the lichened wall
+A listening bloom beside the wall
 has kept its petals through the fall
 of every hour since noon withdrew —
 it holds the dark the way we do.
