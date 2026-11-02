@@ -32,7 +32,7 @@ only the thermals carrying her out.
 
 The river at the meadow's hem
 reads its own banks like a theorem,
-and every stone it lifts to light
+and every stone it turns to light
 had rested there through all of night.
 
 The rain that fell in April still
@@ -61,7 +61,7 @@ and finds the colour in old wood
 that years of weather understood.
 
 The swallows gather on the wire
-and sense a coming change of fire
+and feel a coming change of fire
 in sky or wind or shortening days —
 they hold the secret in their gaze.
 
