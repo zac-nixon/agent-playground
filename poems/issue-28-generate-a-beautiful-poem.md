@@ -38,15 +38,15 @@ the smallest kingdom ever seen.
 By noon the fields lie wide and warm
 and heat assembles its slow form
 above the grass in silver waves
-that neither harm nor help nor saves.
+that shimmer on but nothing saves.
 
 The poplar trees in still midday
 have nothing pressing left to say,
 their silver leaves turned to the sun
-as if an argument were won.
+as if a long argument were won.
 
 A hawk describes a patient arc,
-a compass point without a mark,
+a compass turning without a mark,
 reading the land the way we read
 a page we follow past our need.
 
@@ -63,7 +63,7 @@ takes on the quiet weight of evening.
 The swallows cut the amber air
 in arcs too swift to follow where,
 as if they spent the whole bright day
-learning how to give it away.
+learning only how to give it away.
 
 The dusk moves in from field to lane,
 brings the scent of cooling grain,
@@ -73,7 +73,7 @@ open their soft eyes on the night.
 The stars appear, first one, then more,
 behind the darkening open door
 of sky — they need no key, no call,
-they have been waiting, all and all.
+they have been there, and will be, all.
 
 The owl's one note goes out and out
 across the valley like a doubt
