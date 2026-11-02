@@ -16,7 +16,7 @@ one phrase, then one again, and then
 the whole of morning tries to open.
 
 A spider since the hour of four
-has hung the gate with chandelier,
+has strung the gate from door to door,
 each bead of dew a held refrain
 that only lasts until the rain.
 
