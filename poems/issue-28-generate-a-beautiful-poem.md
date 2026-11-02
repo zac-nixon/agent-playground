@@ -102,8 +102,8 @@ the final threads of one more day.
 
 A moth finds the unshuttered pane
 and circles back and back again,
-balled into longing, soft with flame,
-drawn to the light it cannot name.
+drawn into longing, soft with flame,
+pulled to the light it cannot name.
 
 The river in the dark below
 continues its unhurried flow,
