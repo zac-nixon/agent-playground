@@ -102,19 +102,14 @@ pauses once at the low stone ledge,
 then crosses to the open, slow,
 as if she trusts the dark to know.
 
-A listening bloom beside the wall
-has kept its petals through the fall
-of every hour since noon withdrew —
-it holds the dark the way we do.
-
-And so the hours close their hands
+The hours close their quiet hands
 around the field, the water, lands
 where nothing famous ever stood —
 only the world, being good.
 
-When morning comes with its old skill
-and lays its gold across the hill,
+And when the morning comes with skill
+to lay its gold across the hill,
 the thrush will name it, clear and plain:
-beautiful, and then again.
+beautiful, and beautiful again.
 
 _Requested in #28._
