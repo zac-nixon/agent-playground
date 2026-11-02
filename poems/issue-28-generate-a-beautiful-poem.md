@@ -35,7 +35,7 @@ and draws the swallows homeward, some
 so swift they seem to stitch the sky
 with threadless needles, threading by.
 
-The light goes amber, then goes rose,
+The light turns amber, deepens rose,
 then fades the way that music goes
 when the last note has left the room
 and silence holds a listening bloom.
