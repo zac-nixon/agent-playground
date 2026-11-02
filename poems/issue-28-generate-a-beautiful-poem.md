@@ -1,118 +1,108 @@
 # Generate a beautiful poem
 
-The first light comes without a sound
-and lays itself along the ground,
-the way a careful hand will press
-a gift it cannot quite express.
+The morning opens like a hand
+that offers everything it planned:
+the dew, the grass, the tilting light,
+the last moths folding back to night.
 
-The valley holds the mist until
-the sun persuades it from the hill,
-and then it lifts without a seam,
-unthreads itself like a departing dream.
+A wren lifts from the mossy wall
+and makes its bright declarative call,
+one phrase the whole field stops to hear,
+then everything resumes its year.
 
-The thrush begins before the rest
-and sings as if it knows what's best —
-one phrase, then one again, and then
-the whole of morning starts to open.
+The mist sits in the lower lane
+and will not be commanded — plain
+and patient as a thing that knows
+it only ever thins, not goes.
 
-A spider since the hour of four
-has strung her silver door to door;
-each bead of dew a held refrain
-that trembles once and yields to rain.
+The spider on the gate-post stays
+beside her web's cartography of days,
+each thread a road between two points
+where night and morning share their joints.
 
-The swallows stitch the sky all day
-with threadless needles, bright and grey,
-and every arc they write and lose
-is the living line the wide sky chooses.
+A heron lifts on wide slow wings
+and rises past the need for things
+like speed or reason, haste or doubt —
+only the thermals carrying her out.
 
-A heron at the river's bend
-stands like a patience without end,
-grey and still and barely here —
-already half the atmosphere.
+The river at the meadow's hem
+reads its own banks like a theorem,
+and every stone it turns to light
+was resting there through all of night.
 
-The field moves in a single wave
-the way a tide moves through a cave:
-it cannot stop and does not try;
-it simply answers the long sky.
+At noon the shadows shrink to pools
+beneath the oak, and no one rules
+the afternoon — it rules itself,
+paging slowly, shelf by shelf.
 
-The oak holds fast its hundred rings
-without complaint for what time brings,
-and gives its shade because it can
-to any creature, beast or man.
+A kestrel holds the sky in place
+by standing still in moving air,
+its eye a point of perfect grace
+that names the field below with care.
 
-At noon the light falls everywhere
-and presses colour into air,
-yet still each clover holds its bloom
-like a small and quietly listening room.
+The cattle in the corner field
+have found the shade and will not yield
+their good positions to the heat,
+their breath the summer's slow heartbeat.
 
-A hawk hangs on a hinge of wind
-and reads the field for what is pinned
-beneath the grass — then tips, then slips
-behind the hill's unhurried lips.
+A clover hum of bees persists
+through all the golden-shouldered lists
+of afternoon, their industry
+a kind of deep simplicity.
 
-The river carries what it's lent:
-one spinning leaf, one bright dissent
-of sky among the pines' reflection —
-a moment's loan, a brief perfection.
+The light at four goes long and warm
+and leans against the barn and farm
+and finds the colour in old wood
+that years of weather understood.
 
-At dusk the swallows spend the last
-of amber light, banking fast,
-and always know, by some deep grace,
-exactly when to leave a place.
+The swallows gather on the wire
+and read some coming change of fire
+in sky or wind or shortening days —
+they hold the secret in their gaze.
 
-The farmhouse window fills with gold,
-a warmth the evening cannot hold,
-and smoke climbs, slow and sure and true,
-into the open arms of blue.
+At dusk a curlew's spiral call
+unwinds and lets the silence fall
+back in around it, larger now,
+the way the dark fulfils a vow.
 
-The first star finds the sky and stays
-without a reason, without praise,
-and then a second, then a spill —
-the ancient patience, older still.
+The moon arrives without a knock
+and silverplates the weathercock,
+the lane, the field, the unmown verge,
+the place where all the old paths merge.
 
-The owl unlocks one hollow note
-that empties slowly from its throat
-and fills the valley, wall to wall,
-poised somewhere between call and fall.
+An owl sits in the hollow tree
+and asks its patient liturgy
+of darkness, field and passing air —
+the question is its own answer there.
 
-The moon lifts over the eastern ridge
-and silvers gate and road and bridge,
-the standing wheat, the unmown verge,
-the dark where all the field-paths merge.
+The fox moves through the standing wheat
+and barely bends a blade, her feet
+so certain of the way things lie
+she needs no lantern from the sky.
 
-A moth finds the unshuttered glass
-and makes its small arrival — past
-the need to name it lost or found,
-only drawn to light, as we are drawn to ground.
+The river does not cease because
+the night has come — it never paused
+for any dark, for any dawn,
+it only gives what it has drawn.
 
-The badger crosses the cold track
-and does not think to carry back
-the dark she moves through — only goes,
-her white stripe certain as she knows.
+The stars arrange their usual text
+across the black between what's next
+and what already was — the same
+old scripture, and still without name.
 
-A deer steps from the tree-line's seam
-and stands a moment in the gleam,
-then trusts the open ground, and slow,
-walks forward into what we cannot know.
+The hour before the morning breaks
+is when the whole world simply waits
+without impatience, without need —
+a perfect, held, unhurried creed.
 
-The river through the valley's fold
-moves on through night as it was told
-before there was a word for night,
-before the first hand struck a light.
+And then the thrush begins again
+and names the light before it's plain,
+and everything the day will be
+opens out in that first three-note key.
 
-The night draws in its counted breath
-and holds the hours between life and death:
-the stream, the ridge, the gate, the lane,
-the web still shining in the rain.
-
-And so the darkness keeps its own —
-the field, the fox, the turning stone,
-the root that splits the wall in two,
-the silent work the small hours do.
-
-And when the morning comes again
-to lay its gold across the plain,
-the thrush will name it, clear and true:
-beautiful, and beautiful, and new.
+The dew returns as if it stayed.
+The spider mends what night has frayed.
+The heron lifts to the same bend.
+The beautiful does not end.
 
 _Requested in #28._
