@@ -102,6 +102,11 @@ pauses at the low stone ledge,
 then crosses to the open, slow,
 as if she trusts the dark to know.
 
+A listening bloom beside the gate
+opens its white face to the late
+and silver hour, asking nothing more
+than to be what it was made for.
+
 The hours close their quiet hands
 around the field, the water, lands
 where nothing famous ever stood —
