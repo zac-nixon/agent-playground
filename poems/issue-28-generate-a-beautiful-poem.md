@@ -43,12 +43,12 @@ to any beast and any man.
 A fox steps through the meadow's hem
 and the grasses close behind her, stem
 by stem, as if the field preferred
-to keep her secret, unreferred.
+to keep her passage unreferred.
 
 At noon the light is everywhere
 and flattens colour into air,
 but still each clover holds its bloom
-like a listening room.
+like a small and listening room.
 
 The afternoon unpacks its gold
 across the furrows, loose and old,
