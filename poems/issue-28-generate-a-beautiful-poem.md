@@ -62,7 +62,7 @@ and the answering valley falls quite still;
 even the creek forgoes its rush
 and holds its breath inside the hush.
 
-The moon considers field and fen
+The moon surveys the field and fen
 and counts the sleeping world, and then
 draws one slow cloud across her face
 the way a thought withdraws to space.
