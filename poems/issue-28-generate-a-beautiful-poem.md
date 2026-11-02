@@ -105,6 +105,11 @@ and holds the hours between life and death:
 the stream, the ridge, the gate, the lane,
 the web still shining in the rain.
 
+And so the darkness keeps its own —
+the field, the fox, the turning stone,
+the root that splits the wall in two,
+the silent work the small hours do.
+
 And when the morning comes to lay
 its gold along the hill's cold grey,
 the thrush will name it, bright and plain:
