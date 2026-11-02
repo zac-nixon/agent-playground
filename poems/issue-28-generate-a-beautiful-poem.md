@@ -42,8 +42,8 @@ across the field, unhurried, bright,
 and every common thing it finds
 it touches once, then leaves behind.
 
-The orchard holds its loaded boughs
-through the long and amber hours,
+The orchard holds its laden boughs
+through the long and golden hours,
 and every apple, sun-side red,
 counts the warmth before it's shed.
 
@@ -59,8 +59,8 @@ when beautiful begins to go.
 
 The farmhouse windows slowly fill
 with the soft gold of standing still,
-and smoke goes up the chimney straight
-into the cooling dark of late.
+and smoke goes straight up, pale and bright,
+into the cooling arms of night.
 
 Then one star finds the open sky
 and holds its place without a why,
