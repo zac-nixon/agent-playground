@@ -67,7 +67,7 @@ and counts the sleeping world, and then
 draws one slow cloud across her face
 the way a thought withdraws to space.
 
-The wind moves softly through the wheat,
+The wind moves through the standing wheat —
 a whisper neither cold nor sweet,
 just breath enough to lift and lay
 the last loose threads of one more day.
