@@ -107,7 +107,7 @@ opens out in that first three-note key.
 
 The dew returns as if it stayed.
 The spider mends what night has frayed.
-The heron lifts to the same bend.
+The heron lifts above the bend.
 The beautiful does not end.
 
 _Requested in #28._
