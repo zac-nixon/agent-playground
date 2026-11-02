@@ -8,7 +8,7 @@ the spider's web hung bright with rain.
 A robin pulls a note so thin
 you almost let the morning in
 before you know the door is wide —
-the world already stepped inside.
+the world has quietly stepped inside.
 
 The mist lifts off the lower ground
 without a colour, without a sound,
@@ -24,8 +24,8 @@ is a listening bloom the blue fields reap.
 
 The river carries what it finds:
 the bent reflection of the pines,
-a leaf let go from somewhere high,
-one turning corner of the sky.
+a leaf released from somewhere high,
+one slowly turning coin of sky.
 
 The heron at the shallow bend
 stands like a thought that will not end,
@@ -43,14 +43,14 @@ and every common thing it finds
 it touches once, then leaves behind.
 
 The orchard holds its laden boughs
-through the long and golden hours,
+through the long and amber hours,
 and every apple, sun-side red,
 counts the warmth before it's shed.
 
 A fox moves through the barley's grain
 and the barley closes whole again,
 as if she were a word the field
-spoke once, then chose to leave concealed.
+spoke once, then quietly chose to seal.
 
 At dusk the swallows spend the last
 of all the light, banking fast
@@ -68,7 +68,7 @@ and then another, and then more —
 a patience none of us asked for.
 
 The owl releases one clear note
-that opens like a door; the throat
+that opens like a lantern; the throat
 of the valley holds it, lets it run
 until the silence has begun.
 
