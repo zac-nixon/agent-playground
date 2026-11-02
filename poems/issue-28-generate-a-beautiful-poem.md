@@ -69,8 +69,8 @@ a patience none of us asked for.
 
 The owl releases one clear note
 that opens like a door; the throat
-of the valley holds it until
-it folds into the general still.
+of the valley holds it, lets it run
+until the silence has begun.
 
 The moon lifts over the eastern ridge
 and silvers every gate and bridge,
