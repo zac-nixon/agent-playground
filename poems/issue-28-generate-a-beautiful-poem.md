@@ -62,8 +62,8 @@ exactly when to leave a place.
 
 The farmhouse window fills with gold,
 a warmth the evening cannot hold,
-and smoke goes up, unhurried, true,
-into the quiet arms of blue.
+and smoke climbs up, unhurried, true,
+into the open arms of blue.
 
 The first star finds the sky and stays
 without a reason, without praise,
@@ -96,14 +96,14 @@ then trusts the open ground, and slow,
 walks forward into what we cannot know.
 
 The river through the valley's fold
-moves through the night as it was told
+moves on through night as it was told
 before there was a word for night,
 before the first hand struck a light.
 
 The night draws in its counted breath
 and holds the hours between life and death:
 the stream, the ridge, the gate, the lane,
-the web still trembling in the rain.
+the web still shining in the rain.
 
 And when the morning comes to lay
 its gold along the hill's cold grey,
