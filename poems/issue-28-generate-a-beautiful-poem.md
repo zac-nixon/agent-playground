@@ -97,6 +97,11 @@ the stars have had the time to fold
 into the earth — and still the ground
 keeps faith with what it once was found.
 
+A deer steps out from the tree-line's edge,
+pauses once at the low stone ledge,
+then crosses into the open, slow,
+as if she trusts the dark to know.
+
 And so the hours close their hands
 around the field, the water, lands
 where nothing famous ever stood —
