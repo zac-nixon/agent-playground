@@ -1,120 +1,95 @@
 # Generate a beautiful poem
 
-The dawn arrives on quiet feet
-and lays its gold across the wheat,
-and every shadow, thin and long,
-retracts like the last line of a song.
+The light comes in before the sun
+and touches everything it can,
+the sleeping field, the empty lane,
+the spider's web hung bright with rain.
 
-The meadow lifts its heavy dew
-to meet a sky of brightening blue,
-and all the blades that bowed with night
-stand straight again and hold the light.
+A robin pulls a note so thin
+you almost let the morning in
+before you know the door is wide —
+the world already stepped inside.
 
-A thrush declares the morning good
-from somewhere in the dripping wood,
-the swallows stitch the sky above
-with threadless needles made of love.
+The mist lifts off the lower ground
+without a colour and without a sound,
+and where it was, the grass stands clear,
+soaked through with everything the year
+has slowly given, blade by blade,
+the bright inheritance of shade.
 
-The creek moves over stone and root
-with neither argument nor dispute,
-turning the pebbles, cool and clear,
-as if the world were only here.
+The river carries what it finds:
+the bent reflection of the pines,
+a leaf let go from somewhere high,
+one turning corner of the sky.
 
-A heron stands beside the bend,
-so still it seems the hours suspend,
-one grey idea held in place
-between the water and the space.
+The heron at the shallow bend
+stands like a thought that will not end,
+grey and patient, still as prayer,
+already half belonging there.
 
-The orchard breathes its apple-scent
-through hours that are freely lent,
-and every listening bloom on the bough
-tilts toward the light, not knowing how.
+A hawk tips one long wing and slips
+behind the hill. The silence dips
+and fills again like water will
+return to level, cold and still.
 
-A beetle on a sun-warm stone
-carries its bright shell home alone,
-lacquered black and tipped with green —
-the smallest kingdom ever seen.
+The afternoon unrolls its light
+across the field, unhurried, bright,
+and every common thing it finds
+it touches once, then leaves behind.
 
-The spider at the gate sits still
-and reads the web the way wind will,
-each silver thread a word that waits
-for morning light to conjugate.
+The orchard holds its loaded boughs
+through the long, unhurried hours,
+and every apple, sun-side red,
+counts the light before it's shed.
 
-By noon the fields lie wide and warm
-and heat assembles its slow form
-above the grass in silver waves
-that shimmer long past what it saves.
+A fox moves through the barley's grain
+and the barley closes whole again,
+as if she were a word the field
+spoke once, then chose to leave concealed.
 
-A hawk describes a patient arc,
-a compass turning without a mark,
-reading the land the way we read
-a page we follow past our need.
+At dusk the swallows spend the last
+of all the light, banking fast
+through amber air — they always know
+when beautiful begins to go.
 
-The afternoon pours out its gold
-with all the ease of stories told
-by someone sitting without haste
-who keeps no hunger, knows no waste.
+The farmhouse windows slowly fill
+with the soft gold of standing still,
+and smoke goes up from the chimney straight
+into the cooling dark of late.
 
-A fox slips through the barley rows
-and only the parting barley shows
-the path she takes, already grown
-back to a secret of her own.
+Then one star finds the open sky
+and holds its place without a why,
+and then another, and then more —
+a patience none of us asked for.
 
-Then light tips west and shadows lean
-across the fence and deepen green,
-and every common, ordinary thing
-takes on the quiet weight of evening.
+The owl releases one clear note
+that opens like a door the throat
+of the valley holds until
+it folds into the general still.
 
-The swallows cut the amber air
-in arcs too swift to follow where,
-as if they spent the whole bright day
-learning only how to give it away.
-
-The dusk moves in from field to lane
-and brings the scent of cooling grain,
-and one by one the farmhouse lights
-open their soft eyes on the night.
-
-The stars appear, first one, then more,
-behind the darkening open door
-of sky — they need no key, no call,
-they have always been there, holding all.
-
-The owl's one note goes out and out
-across the valley like a doubt
-the darkness holds but will not keep —
-it fades, and everything finds sleep.
-
-The moon moves over field and fen
-and numbers all the world, and then
-she draws a cloud across her face
-the way a thought withdraws to space.
+The moon lifts over the eastern ridge
+and silvers every gate and bridge,
+the empty road, the standing wheat,
+the quiet where the two fields meet.
 
 A moth finds the unshuttered pane
-and circles back and back again,
-drawn into longing, soft with flame,
-pulled to the light it cannot name.
+and makes its small return again,
+not lost, not foolish — only drawn
+to light the way we all are drawn.
 
-The river in the dark below
-continues its unhurried flow,
-holding the moon without a word,
-holding the sky, and every bird.
+The river in the valley's fold
+moves through the dark as it was told
+before there was a word for dark,
+before the first fire made its mark.
 
-And so it turns, and so it goes,
-the way a river always knows
-the sea without a map or sign —
-the long curve holding its design.
+And so the hours close their hands
+around the field, the water, lands
+where nothing famous ever stood —
+only the world, being good.
 
-So much of this will carry on
-long after every word is gone:
-the thrush's note, the creek's low turn,
-the patient way the good things burn.
-
-And if some morning, years from now,
-a stranger rests a hand on the plow
-and feels the light fall just this way —
-no word will be enough to say
-how beauty asks for nothing more
-than open eyes and an open door.
+When morning comes with its old skill
+and lays its gold across the hill,
+the thrush will name it, clear and plain:
+beautiful, and then again.
 
 _Requested in #28._
