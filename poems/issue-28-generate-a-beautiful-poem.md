@@ -34,7 +34,7 @@ already half belonging there.
 
 A hawk tips one long wing and slips
 behind the hill. The silence dips
-and fills again the way that still
+and fills the way that still
 water returns to find its level.
 
 The afternoon unrolls its light
