@@ -13,7 +13,7 @@ unthreads itself like a departing dream.
 The thrush begins before the rest
 and sings as if it knows what's best —
 one phrase, then one again, and then
-the whole of morning tries to open.
+the whole of morning starts to open.
 
 A spider since the hour of four
 has strung her silver door to door;
@@ -35,8 +35,8 @@ the way a tide moves through a cave:
 it cannot stop and does not try;
 it simply answers the long sky.
 
-The oak holds fast its hundred years
-without complaint, without arrears,
+The oak holds fast its hundred rings
+without complaint for what time brings,
 and gives the shade because it can
 to any creature, beast or man.
 
@@ -70,7 +70,7 @@ without a reason, without praise,
 and then a second, then a spill —
 the ancient patience, older still.
 
-The owl unlocks one single note
+The owl unlocks one hollow note
 that empties slowly from its throat
 and fills the valley, wall to wall,
 poised somewhere between call and fall.
@@ -87,7 +87,7 @@ only drawn to light, as we are drawn to ground.
 
 The badger crosses the cold track
 and does not think to carry back
-the dark she walks through — only goes,
+the dark she moves through — only goes,
 her white stripe certain as she knows.
 
 A deer steps from the tree-line's seam
