@@ -37,7 +37,7 @@ it simply answers the long sky.
 
 The oak holds fast its hundred rings
 without complaint for what time brings,
-and gives the shade because it can
+and gives its shade because it can
 to any creature, beast or man.
 
 At noon the light falls everywhere
@@ -47,7 +47,7 @@ like a small and quietly listening room.
 
 A hawk hangs on a hinge of wind
 and reads the field for what is pinned
-beneath the grass — then tips and slips
+beneath the grass — then tips, then slips
 behind the hill's unhurried lips.
 
 The river carries what it's lent:
@@ -57,12 +57,12 @@ a moment's loan, a brief perfection.
 
 At dusk the swallows spend the last
 of amber light, banking fast,
-and always know, by some old grace,
+and always know, by some deep grace,
 exactly when to leave a place.
 
 The farmhouse window fills with gold,
 a warmth the evening cannot hold,
-and smoke climbs up, unhurried, true,
+and smoke climbs, slow and sure and true,
 into the open arms of blue.
 
 The first star finds the sky and stays
