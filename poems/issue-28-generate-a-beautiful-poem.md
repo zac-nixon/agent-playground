@@ -17,6 +17,11 @@ soaked through with everything the year
 has slowly given, blade by blade,
 the bright inheritance of shade.
 
+The swallows stitch the open sky
+with threadless needles, low and high,
+and every arc they cut and keep
+is a listening bloom the blue fields reap.
+
 The river carries what it finds:
 the bent reflection of the pines,
 a leaf let go from somewhere high,
