@@ -35,6 +35,11 @@ carries its bright shell home alone,
 lacquered black and tipped with green —
 the smallest kingdom ever seen.
 
+The spider at the gate sits still
+and reads the web the way wind will,
+each silver thread a word that waits
+for morning light to conjugate.
+
 By noon the fields lie wide and warm
 and heat assembles its slow form
 above the grass in silver waves
@@ -54,6 +59,11 @@ The afternoon pours out its gold
 with all the ease of stories told
 by someone sitting without haste
 who keeps no hunger, knows no waste.
+
+A fox slips through the barley rows
+and only the parting barley shows
+the path she takes, already grown
+back to a secret of her own.
 
 Then light tips west and shadows lean
 across the fence and deepen green,
@@ -94,6 +104,11 @@ A moth finds the unshuttered pane
 and circles back and back again,
 balled into longing, soft with flame,
 drawn to the light it cannot name.
+
+The river in the dark below
+continues its unhurried flow,
+holding the moon without a word,
+holding the sky, and every bird.
 
 And so it turns, and so it goes,
 the way a river always knows
