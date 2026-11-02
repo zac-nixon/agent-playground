@@ -20,7 +20,7 @@ the bright inheritance of shade.
 The swallows stitch the open sky
 with threadless needles, low and high,
 and every arc they cut and keep
-is the living curve the blue fields reap.
+is the living curve the wide fields reap.
 
 The river carries what it finds:
 the bent reflection of the pines,
