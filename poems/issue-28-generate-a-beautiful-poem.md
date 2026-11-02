@@ -35,6 +35,11 @@ reads its own banks like a theorem,
 and every stone it lifts to light
 had rested there through all of night.
 
+The rain that fell in April still
+is travelling, slow, beneath the hill,
+finding the root, the seam, the well —
+water remembers where to dwell.
+
 At noon the shadows shrink to pools
 beneath the oak, where nothing rules
 the afternoon — it rules itself,
