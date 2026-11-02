@@ -1,33 +1,40 @@
 # Generate a beautiful poem
 
-The morning breaks on silver hills,
-where amber light the valley fills,
-and dew-kissed petals, soft and bright,
-are trembling in the tender light.
+The tide comes in on copper sand,
+and smooths each stone with patient hand,
+while gulls describe their looping arc
+from morning's gold to amber dark.
 
-The river sings its ancient song,
-a winding hymn that flows along
-through willow shade and mossy stone,
-through every place the wind has blown.
+Beneath the cliff where samphire grows,
+the sea exhales and ebbs and flows,
+and every wave that breaks and thins
+leaves something gleaming where it ends.
 
-The sparrows call from bending bough,
-the world reborn again somehow,
-as if the night had never been,
-as if the stars were just a dream.
+The inland meadows hold their breath
+when summer leans on summer's depth,
+and clover bends beneath the weight
+of bees too drunk to fly quite straight.
 
-Beneath the oak whose roots run deep,
-old earth exhales its hallowed sleep,
-and wildflowers lean toward the sun,
-as if to say — the day's begun.
+A heron stands in silver reed,
+perfect, still, without a need,
+whose patience is its own reward,
+whose stillness is a kind of word.
 
-So let this moment hold us still,
-beside the stream, beside the hill,
-where beauty lives not far away
-but here, and whole, and now, today.
+The afternoon turns slow and long,
+and light itself becomes a song
+that pours through leaf and latticed bough
+and touches everything, somehow.
 
-For lovely things are never lost
-to those who pause and count the cost
-of rushing past the gilded hours —
-the light, the rivers, and the flowers.
+The hills go blue as distance grows,
+the way that evening always goes,
+until the first star finds its place
+and hangs its lantern in the space.
+
+And all of this was always here —
+the heron, tide, the turning year —
+waiting only for the eye
+that stops, and looks, and wonders why
+so much of beauty asks so little:
+just a moment, and a stillness.
 
 _Requested in #28._
