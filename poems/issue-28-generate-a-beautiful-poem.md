@@ -98,7 +98,7 @@ into the earth — and still the ground
 keeps faith with what it once was found.
 
 A deer steps from the tree-line's edge,
-pauses once at the low stone ledge,
+pauses at the low stone ledge,
 then crosses to the open, slow,
 as if she trusts the dark to know.
 
