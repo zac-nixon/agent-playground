@@ -54,7 +54,7 @@ refreshing all that morning makes.
 
 The fox trots home along the hedge,
 leaving prints beside the sedge,
-and rabbits, bold in the half-dark,
+and rabbits, bold in the blue half-dark,
 sit still as stones beside the bark.
 
 The owl calls once across the hill
@@ -66,6 +66,11 @@ The moon leans over field and fen
 and counts the sleeping world, and then
 draws one slow cloud across her face
 the way a thought withdraws to space.
+
+The wind moves softly through the wheat,
+a whisper neither cold nor sweet,
+just breath enough to lift and lay
+the last loose threads of one more day.
 
 So much of this will carry on
 long after every word is gone:
