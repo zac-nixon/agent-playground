@@ -45,11 +45,6 @@ and heat assembles its slow form
 above the grass in silver waves
 that shimmer long past what it saves.
 
-The poplar trees in still midday
-have nothing pressing left to say,
-their silver leaves turned to the sun
-as if a long agreement won.
-
 A hawk describes a patient arc,
 a compass turning without a mark,
 reading the land the way we read
@@ -94,11 +89,6 @@ The moon moves over field and fen
 and numbers all the world, and then
 she draws a cloud across her face
 the way a thought withdraws to space.
-
-The wind stirs once along the wheat —
-a breath that's neither cold nor sweet —
-just enough to lift and lay
-the final threads of one more day.
 
 A moth finds the unshuttered pane
 and circles back and back again,
