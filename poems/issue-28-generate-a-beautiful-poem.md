@@ -43,9 +43,9 @@ and every common thing it finds
 it touches once, then leaves behind.
 
 The orchard holds its loaded boughs
-through the long, unhurried hours,
+through the long and amber hours,
 and every apple, sun-side red,
-counts the light before it's shed.
+counts the warmth before it's shed.
 
 A fox moves through the barley's grain
 and the barley closes whole again,
@@ -59,7 +59,7 @@ when beautiful begins to go.
 
 The farmhouse windows slowly fill
 with the soft gold of standing still,
-and smoke goes up from the chimney straight
+and smoke goes up the chimney straight
 into the cooling dark of late.
 
 Then one star finds the open sky
