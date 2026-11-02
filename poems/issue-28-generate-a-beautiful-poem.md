@@ -1,130 +1,138 @@
 # Generate a beautiful poem
 
-The light arrives before the sun
-and touches everything it can,
-the sleeping field, the empty lane,
-the spider's web hung bright with rain.
+The first light comes without a sound
+and lays itself along the ground,
+the way a careful hand will press
+a gift it cannot quite express.
 
-A robin pulls a note so thin
-you almost let the morning in
-before you know the door is wide —
-the world has quietly stepped inside.
+The valley holds the mist until
+the sun persuades it from the hill,
+and then it lifts without a seam,
+unthreads itself like a departing dream.
 
-The mist lifts off the lower ground
-without a colour, without a sound,
-and where it was, the grass stands clear,
-soaked through with all the patient year
-has slowly given, blade by blade,
-the bright inheritance of shade.
+The thrush begins before the rest
+and sings as if it knows what's best —
+one phrase, then one again, and then
+the whole of morning tries to open.
 
-The swallows stitch the open sky
-with threadless needles, low and high,
-and every arc they cut and keep
-is the living curve the wide fields reap.
+A spider at her work since four
+has hung the gate with chandelier,
+each bead of dew a held refrain
+that only lasts until the rain.
 
-The river carries what it finds:
-the bent reflection of the pines,
-a leaf released from somewhere high,
-one slowly turning coin of sky.
+The swallows map the warming air,
+their courses gone before they're there,
+and every arc they write and lose
+is the living line the wide sky chooses.
 
-The heron at the shallow bend
-stands like a thought that will not end,
-grey and patient, still as prayer,
-already half belonging there.
+A heron at the river's bend
+stands like a patience without end,
+grey and still and barely here —
+already half the atmosphere.
 
-A hawk tips one long wing and slips
-behind the hill. The silence dips
-and fills again, the way that still
-water returns to find its level.
+The field moves in a single wave
+the way the sea moves in a cave:
+it cannot stop and does not try;
+it simply answers the long sky.
 
-The afternoon unrolls its light
-across the field, unhurried, bright,
-and every common thing it finds
-it touches once, then leaves behind.
+The oak tree holds its hundred years
+without complaint, without arrears,
+and gives the shade because it can
+to any beast and any man.
 
-The orchard holds its laden boughs
-through the long and amber hours,
-and every apple, sun-side red,
-counts the warmth before it's shed.
+A fox steps through the meadow's hem
+and the grasses close behind her, stem
+by stem, as if the field preferred
+to keep her secret, unreferred.
 
-A fox moves through the barley's grain
-and the barley closes whole again,
-as if she were a word the field
-spoke once, then quietly chose to seal.
+At noon the light is everywhere
+and flattens colour into air,
+but still the orchard smells of sun,
+of apples warm and almost done.
+
+The afternoon unpacks its gold
+across the furrows, loose and old,
+and every clod and every stone
+receives it as if called by name.
+
+A hawk hangs on a hinge of wind
+and reads the field for what is pinned
+beneath the grass — then tips and slips
+behind the hill's indifferent lips.
+
+The river carries what it's lent:
+one spinning leaf, one bright dissent
+of sky among the pines' reflection —
+a moment's loan of imperfection.
 
 At dusk the swallows spend the last
-of all the light, banking fast
-through amber air — they always know
-when beautiful begins to go.
+of amber light, banking fast,
+and always know, by some old grace,
+exactly when to leave a place.
 
-The farmhouse windows slowly fill
-with the soft gold of standing still,
-and smoke ascends, unhurried, true,
-into the cooling arms of blue.
+The farmhouse window fills with gold,
+a warmth the evening cannot hold,
+and smoke goes up, unhurried, true,
+into the quiet arms of blue.
 
-Then one star finds the open sky
-and holds its place without a why,
-and then another, and then more —
-a patience none of us asked for.
+The first star finds the sky and stays
+without a reason, without praise,
+and then a second, then a spill —
+the ancient patience, older still.
 
-The owl releases one clear note
-that opens like a lantern; the throat
-of the valley holds it, lets it run
-until the silence has begun.
+The owl unlocks one single note
+that empties slowly from its throat
+and fills the valley, wall to wall,
+with something between call and fall.
 
 The moon lifts over the eastern ridge
-and silvers every gate and bridge,
-the empty road, the standing wheat,
-the quiet where the two fields meet.
+and silvers gate and road and bridge,
+the standing wheat, the unmown verge,
+the dark where all the field-paths merge.
 
-A moth finds the unshuttered pane
-and makes its small return again —
-not lost, not foolish, only drawn
-to light the way we all are drawn.
+A moth finds the unshuttered glass
+and makes its small arrival — past
+the need to name it lost or found;
+only drawn to light, as we are drawn.
 
-The river in the valley's fold
-moves through the dark as it was told
-before there was a word for dark,
-before the first fire made its mark.
+The badger crosses the cold track
+and does not think to carry back
+the dark she walks through — only goes,
+her white stripe certain as she knows.
 
-The badger crosses the frosted track
-and does not once consider back,
-her dark stripe certain, small feet set
-on ground she has not learned to forget.
+A deer steps from the tree-line's seam
+and stands, a hesitation's dream,
+then crosses open ground, and slow,
+as if she trusts the dark to know.
+
+The river through the valley's fold
+moves through the night as it was told
+before there was a word for night,
+before the first hand struck a light.
 
 The field holds every note of cold
-the stars have had the time to fold
+the patient stars have taken and rolled
 into the earth — and still the ground
 keeps faith with what it once was found.
 
-A deer steps from the tree-line's edge,
-pauses at the low stone ledge,
-then crosses to the open, slow,
-as if she trusts the dark to know.
-
 A wren threads through the hedgerow's weave
-and shakes one bright drop from a leaf —
-the smallest gesture, barely seen,
+and shakes one silver drop from a leaf —
+the smallest motion, barely seen,
 but everything that falls is clean.
 
-A listening bloom beside the gate
-opens its white face to the late
-and silver hour, asking nothing more
-than to be what it was made for.
-
-The night draws in its careful breath
-and holds the world between life and death —
-the field, the stream, the ridge, the lane,
-the web still trembling in the rain.
-
-The hours close their quiet hands
+The hours close their careful hands
 around the field, the water, lands
-where nothing famous ever stood —
-only the world, being good.
+where nothing famous ever grew —
+only the world, being true.
 
-And when the morning comes with skill
-to lay its gold across the hill,
-the thrush will name it, clear and plain:
+The night draws in its counted breath
+and holds the hours between life and death:
+the stream, the ridge, the gate, the lane,
+the web still carrying its rain.
+
+And when the morning comes to lay
+its gold along the hill's cold gray,
+the thrush will name it, bright and plain:
 beautiful, and beautiful again.
 
 _Requested in #28._
