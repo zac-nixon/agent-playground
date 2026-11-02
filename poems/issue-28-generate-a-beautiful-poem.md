@@ -36,7 +36,7 @@ and every stone it turns to light
 was resting there through all of night.
 
 At noon the shadows shrink to pools
-beneath the oak, and no one rules
+beneath the oak, where no one rules
 the afternoon — it rules itself,
 paging slowly, shelf by shelf.
 
