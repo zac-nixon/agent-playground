@@ -31,29 +31,19 @@ grey and still and barely here —
 already half the atmosphere.
 
 The field moves in a single wave
-the way the sea moves in a cave:
+the way a tide moves through a cave:
 it cannot stop and does not try;
 it simply answers the long sky.
 
 The oak holds fast its hundred years
 without complaint, without arrears,
 and gives the shade because it can
-to any beast and any man.
-
-A fox steps through the meadow's hem
-and the grasses close behind her, stem
-by stem, as if the field preferred
-to keep her passing unreferred.
+to any creature, beast or man.
 
 At noon the light is everywhere
 and presses colour into air,
 yet still each clover holds its bloom
 like a small and listening room.
-
-The afternoon unpacks its gold
-across the furrows, loose and old,
-and every clod and every stone
-receives the warmth as if called home.
 
 A hawk hangs on a hinge of wind
 and reads the field for what is pinned
@@ -109,16 +99,6 @@ The river through the valley's fold
 moves through the night as it was told
 before there was a word for night,
 before the first hand struck a light.
-
-A wren threads through the hedgerow's weave
-and shakes one silver drop from a leaf —
-the smallest motion, barely seen,
-but everything that falls is clean.
-
-The hours close their careful hands
-around the field, the water, lands
-where nothing famous ever grew —
-only the world, quietly true.
 
 The night draws in its counted breath
 and holds the hours between life and death:
