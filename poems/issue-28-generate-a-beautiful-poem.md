@@ -78,8 +78,8 @@ the empty road, the standing wheat,
 the quiet where the two fields meet.
 
 A moth finds the unshuttered pane
-and makes its small return again,
-not lost, not foolish — only drawn
+and makes its small return again —
+not lost, not foolish, only drawn
 to light the way we all are drawn.
 
 The river in the valley's fold
@@ -89,7 +89,7 @@ before the first fire made its mark.
 
 The badger crosses the frosted track
 and does not once consider back,
-her dark stripe sure, her small feet set
+her dark stripe certain, small feet set
 on ground she has not learned to forget.
 
 The field holds every note of cold
@@ -102,7 +102,7 @@ pauses once at the low stone ledge,
 then crosses to the open, slow,
 as if she trusts the dark to know.
 
-A listening bloom beside the wall
+A bloom beside the lichened wall
 has kept its petals through the fall
 of every hour since noon withdrew —
 it holds the dark the way we do.
