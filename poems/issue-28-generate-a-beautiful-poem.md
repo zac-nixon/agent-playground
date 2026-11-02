@@ -77,6 +77,11 @@ a whisper neither cold nor sweet,
 just breath enough to lift and lay
 the last loose threads of one more day.
 
+A moth finds the unshuttered pane
+and circles back and back again,
+drawn to the flame it cannot name,
+both question and the questioned flame.
+
 So much of this will carry on
 long after every word is gone —
 the sparrow's note, the river's turn,
