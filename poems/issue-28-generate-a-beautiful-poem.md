@@ -90,10 +90,10 @@ the night has come — it never paused
 for any dark, for any dawn,
 it only gives what it has drawn.
 
-The stars arrange their usual text
+The stars arrange their ancient text
 across the black between what's next
 and what already was — the same
-old scripture, and still without name.
+old scripture, luminous and unnamed.
 
 The hour before the morning breaks
 is when the whole world simply waits
