@@ -87,7 +87,7 @@ long after every word is gone —
 the sparrow's note, the river's turn,
 the patient way the good things burn.
 
-And if some morning, long from now,
+And if some morning, years from now,
 a stranger pauses at the plow
 and feels the light fall just this way,
 no word will be enough to say
