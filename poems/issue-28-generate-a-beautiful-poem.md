@@ -55,7 +55,7 @@ refreshing all that morning makes.
 The fox trots home along the hedge,
 leaving prints beside the sedge,
 and rabbits, bold in the blue half-dark,
-sit still as stones against the bark.
+lit briefly white against the bark.
 
 The owl calls once across the hill
 and the answering valley falls quite still;
