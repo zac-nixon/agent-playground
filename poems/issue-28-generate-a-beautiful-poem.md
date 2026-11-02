@@ -48,7 +48,7 @@ paging slowly, shelf by shelf.
 A kestrel holds the sky in place
 by standing still in moving air,
 its eye a point of perfect grace
-that names the field below with care.
+that names each thing below with care.
 
 The clover lifts a listening bloom
 toward the bee that fills its room,
@@ -61,7 +61,7 @@ and finds the colour in old wood
 that years of weather understood.
 
 The swallows gather on the wire
-and read some coming change of fire
+and sense a coming change of fire
 in sky or wind or shortening days —
 they hold the secret in their gaze.
 
