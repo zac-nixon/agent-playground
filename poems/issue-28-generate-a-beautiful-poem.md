@@ -38,7 +38,7 @@ the smallest kingdom ever seen.
 By noon the fields lie wide and warm
 and heat assembles its slow form
 above the grass in silver waves
-that shimmer on but nothing saves.
+that shimmer long past what it saves.
 
 The poplar trees in still midday
 have nothing pressing left to say,
@@ -50,10 +50,10 @@ a compass turning without a mark,
 reading the land the way we read
 a page we follow past our need.
 
-The afternoon moves through its gold
+The afternoon pours out its gold
 with all the ease of stories told
-by someone who has time enough
-and does not need to rush the stuff.
+by someone sitting without haste
+who has not yet acquired taste for waste.
 
 Then light tips west and shadows lean
 across the fence and deepen green,
