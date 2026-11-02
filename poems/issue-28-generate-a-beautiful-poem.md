@@ -61,9 +61,9 @@ and finds the colour in old wood
 that years of weather understood.
 
 The swallows gather on the wire
-and feel a coming change of fire
-in sky or wind or shortening days —
-they hold the secret in their gaze.
+and feel the pull of changing fire
+in shortening days, in cooling air —
+they hold the whole year in their stare.
 
 At dusk a curlew's spiral call
 unwinds and lets the silence fall
