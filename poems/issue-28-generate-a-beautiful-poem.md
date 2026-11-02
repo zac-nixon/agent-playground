@@ -103,7 +103,7 @@ before the first hand struck a light.
 The night draws in its counted breath
 and holds the hours between life and death:
 the stream, the ridge, the gate, the lane,
-the web still carrying its rain.
+the web still trembling with its rain.
 
 And when the morning comes to lay
 its gold along the hill's cold grey,
