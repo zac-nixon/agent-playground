@@ -59,7 +59,7 @@ when beautiful begins to go.
 
 The farmhouse windows slowly fill
 with the soft gold of standing still,
-and smoke goes straight up, pale and true,
+and smoke ascends, unhurried, true,
 into the cooling arms of blue.
 
 Then one star finds the open sky
