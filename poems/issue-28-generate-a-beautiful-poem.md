@@ -15,13 +15,13 @@ and sings as if it knows what's best —
 one phrase, then one again, and then
 the whole of morning tries to open.
 
-A spider at her work since four
+A spider since the hour of four
 has hung the gate with chandelier,
 each bead of dew a held refrain
 that only lasts until the rain.
 
-The swallows map the warming air,
-their courses gone before they're there,
+The swallows stitch the sky all day
+with threadless needles, bright and grey,
 and every arc they write and lose
 is the living line the wide sky chooses.
 
@@ -47,8 +47,8 @@ to keep her secret, unreferred.
 
 At noon the light is everywhere
 and flattens colour into air,
-but still the orchard smells of sun,
-of apples warm and almost done.
+but still each clover holds its bloom
+like a listening room.
 
 The afternoon unpacks its gold
 across the furrows, loose and old,
@@ -110,11 +110,6 @@ moves through the night as it was told
 before there was a word for night,
 before the first hand struck a light.
 
-The field holds every note of cold
-the patient stars have taken and rolled
-into the earth — and still the ground
-keeps faith with what it once was found.
-
 A wren threads through the hedgerow's weave
 and shakes one silver drop from a leaf —
 the smallest motion, barely seen,
@@ -131,7 +126,7 @@ the stream, the ridge, the gate, the lane,
 the web still carrying its rain.
 
 And when the morning comes to lay
-its gold along the hill's cold gray,
+its gold along the hill's cold grey,
 the thrush will name it, bright and plain:
 beautiful, and beautiful again.
 
