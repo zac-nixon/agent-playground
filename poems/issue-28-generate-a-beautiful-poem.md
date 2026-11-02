@@ -59,7 +59,7 @@ lit briefly white against the bark.
 
 The owl calls once across the hill
 and the answering valley falls quite still;
-even the creek relents its rush
+even the creek forgoes its rush
 and holds its breath inside the hush.
 
 The moon considers field and fen
