@@ -13,7 +13,7 @@ the world already stepped inside.
 The mist lifts off the lower ground
 without a colour, without a sound,
 and where it was, the grass stands clear,
-soaked through with everything the year
+soaked through with all the patient year
 has slowly given, blade by blade,
 the bright inheritance of shade.
 
@@ -59,8 +59,8 @@ when beautiful begins to go.
 
 The farmhouse windows slowly fill
 with the soft gold of standing still,
-and smoke goes straight up, pale and bright,
-into the cooling arms of night.
+and smoke goes straight up, pale and true,
+into the cooling arms of blue.
 
 Then one star finds the open sky
 and holds its place without a why,
