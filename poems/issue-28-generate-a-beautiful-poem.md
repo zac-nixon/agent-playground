@@ -40,10 +40,10 @@ is travelling, slow, beneath the hill,
 finding the root, the seam, the well —
 water remembers where to dwell.
 
-At noon the shadows shrink to pools
-beneath the oak, where nothing rules
-the afternoon — it rules itself,
-paging slowly, shelf by shelf.
+At noon the shadows pull back in
+beneath the oak, where light grows thin
+and cool enough to hold a thought —
+the afternoon arrives unbought.
 
 A kestrel holds the sky in place
 by standing still in moving air,
