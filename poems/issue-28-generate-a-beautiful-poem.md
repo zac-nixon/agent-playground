@@ -52,4 +52,11 @@ long after every word is gone:
 the sparrow's note, the river's turn,
 the patient way the good things burn.
 
+And if some morning, long from now,
+a stranger pauses at the plow
+and feels the light fall just this way,
+they'll know — without a word to say —
+that beauty asks for nothing more
+than open eyes and open door.
+
 _Requested in #28._
