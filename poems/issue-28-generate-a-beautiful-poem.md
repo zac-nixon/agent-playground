@@ -18,7 +18,7 @@ the whole of morning starts to open.
 A spider since the hour of four
 has strung her silver door to door;
 each bead of dew a held refrain
-that trembles once, then yields to rain.
+that trembles once and yields to rain.
 
 The swallows stitch the sky all day
 with threadless needles, bright and grey,
