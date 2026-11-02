@@ -102,6 +102,11 @@ pauses at the low stone ledge,
 then crosses to the open, slow,
 as if she trusts the dark to know.
 
+A wren threads through the hedgerow's weave
+and shakes one bright drop from a leaf —
+the smallest gesture, barely seen,
+but everything that falls is clean.
+
 A listening bloom beside the gate
 opens its white face to the late
 and silver hour, asking nothing more
