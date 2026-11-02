@@ -65,15 +65,15 @@ in arcs too swift to follow where,
 as if they spent the whole bright day
 learning only how to give it away.
 
-The dusk moves in from field to lane,
-brings the scent of cooling grain,
+The dusk moves in from field to lane
+and brings the scent of cooling grain,
 and one by one the farmhouse lights
 open their soft eyes on the night.
 
 The stars appear, first one, then more,
 behind the darkening open door
 of sky — they need no key, no call,
-they have always been there, and will be all.
+they have always been there, holding all.
 
 The owl's one note goes out and out
 across the valley like a doubt
@@ -110,6 +110,6 @@ a stranger rests a hand on the plow
 and feels the light fall just this way —
 no word will be enough to say
 how beauty asks for nothing more
-than open eyes and open door.
+than open eyes and an open door.
 
 _Requested in #28._
