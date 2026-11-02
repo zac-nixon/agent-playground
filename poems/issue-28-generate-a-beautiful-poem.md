@@ -40,7 +40,7 @@ without complaint for what time brings,
 and gives the shade because it can
 to any creature, beast or man.
 
-At noon the light is everywhere
+At noon the light falls everywhere
 and presses colour into air,
 yet still each clover holds its bloom
 like a small and quietly listening room.
@@ -48,12 +48,12 @@ like a small and quietly listening room.
 A hawk hangs on a hinge of wind
 and reads the field for what is pinned
 beneath the grass — then tips and slips
-behind the hill's indifferent lips.
+behind the hill's unhurried lips.
 
 The river carries what it's lent:
 one spinning leaf, one bright dissent
 of sky among the pines' reflection —
-a moment's loan of imperfection.
+a moment's loan, a brief perfection.
 
 At dusk the swallows spend the last
 of amber light, banking fast,
