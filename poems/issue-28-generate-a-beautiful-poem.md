@@ -87,6 +87,11 @@ moves through the dark as it was told
 before there was a word for dark,
 before the first fire made its mark.
 
+The badger crosses the frosted track
+and does not once consider back,
+her dark stripe sure, her small feet set
+on ground she has not learned to forget.
+
 And so the hours close their hands
 around the field, the water, lands
 where nothing famous ever stood —
