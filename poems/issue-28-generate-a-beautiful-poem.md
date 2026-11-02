@@ -20,6 +20,11 @@ through hours neither spent nor lent,
 and blossom drifts without a care
 for where it lands or leaves the air.
 
+A beetle crosses one flat stone,
+armed with purpose and alone,
+its lacquered shell a living bead
+that catches light it does not need.
+
 By afternoon the shadows grow
 and lengthen with a kind of slow
 and golden gravity, the way
