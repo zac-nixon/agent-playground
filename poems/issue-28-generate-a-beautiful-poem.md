@@ -53,7 +53,7 @@ a page we follow past our need.
 The afternoon pours out its gold
 with all the ease of stories told
 by someone sitting without haste
-who has not yet acquired taste for waste.
+who keeps no hunger, knows no waste.
 
 Then light tips west and shadows lean
 across the fence and deepen green,
@@ -110,6 +110,6 @@ a stranger rests a hand on the plow
 and feels the light fall just this way —
 no word will be enough to say
 how beauty asks for nothing more
-than open eyes, and open door.
+than open eyes and open door.
 
 _Requested in #28._
