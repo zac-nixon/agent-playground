@@ -79,8 +79,13 @@ the last loose threads of one more day.
 
 A moth finds the unshuttered pane
 and circles back and back again,
-drawn to the flame it cannot name,
-both question and the questioned flame.
+drawn to the light it cannot name,
+both the question and the flame.
+
+The cricket fills the dark with sound,
+a small bright stitch of underground,
+as if the earth itself were keeping
+a song awake while the world is sleeping.
 
 So much of this will carry on
 long after every word is gone —
