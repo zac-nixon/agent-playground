@@ -52,6 +52,11 @@ to every blade and leaf and stone,
 restoring what the daylight takes,
 refreshing all that morning makes.
 
+The fox trots home along the hedge,
+leaving prints beside the sedge,
+and rabbits, bold in the half-dark,
+sit still as stones beside the bark.
+
 So much of this will carry on
 long after every word is gone:
 the sparrow's note, the river's turn,
