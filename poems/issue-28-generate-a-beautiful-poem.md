@@ -1,40 +1,55 @@
 # Generate a beautiful poem
 
-The tide comes in on copper sand,
-and smooths each stone with patient hand,
-while gulls describe their looping arc
-from morning's gold to amber dark.
+The morning opens like a hand
+that offers light across the land,
+and every field that wakes to gold
+forgets the cold it used to hold.
 
-Beneath the cliff where samphire grows,
-the sea exhales and ebbs and flows,
-and every wave that breaks and thins
-leaves something gleaming where it ends.
+The river reads its own long length
+and moves with unremarkable strength,
+bending where the willows lean
+to touch their own reflection's green.
 
-The inland meadows hold their breath
-when summer leans on summer's depth,
-and clover bends beneath the weight
-of bees too drunk to fly quite straight.
+A sparrow on a fence post sings
+with no ambition but its wings,
+its small notes falling clear and bright
+as pebbles dropped in morning light.
 
-A heron stands in silver reed,
-perfect, still, without a need,
-whose patience is its own reward,
-whose stillness is a kind of word.
+The orchard breathes its apple-scent
+through hours neither spent nor lent,
+and blossom drifts without a care
+for where it lands or leaves the air.
 
-The afternoon turns slow and long,
-and light itself becomes a song
-that pours through leaf and latticed bough
-and touches everything, somehow.
+By afternoon the shadows grow
+and lengthen with a kind of slow
+and golden gravity, the way
+a good thought settles in a day.
 
-The hills go blue as distance grows,
-the way that evening always goes,
-until the first star finds its place
-and hangs its lantern in the space.
+The cattle stand in cooling shade,
+untroubled by the world they've made,
+their patience like a prayer that needs
+no words — just grass, and cloud, and reeds.
 
-And all of this was always here —
-the heron, tide, the turning year —
-waiting only for the eye
-that stops, and looks, and wonders why
-so much of beauty asks so little:
-just a moment, and a stillness.
+Then evening stills the meadow's hum
+and draws the swallows homeward, some
+so swift they seem to stitch the sky
+with threadless needles, threading by.
+
+The light goes amber, then goes rose,
+then fades the way that music goes
+when the last note has left the room
+and left behind a different bloom.
+
+And night arrives without a sound,
+laying silver on the ground,
+and stars resume their ancient place
+as if they'd only stepped offstage
+to let the sun perform its part —
+now back, and steady, and by heart.
+
+So much of this will carry on
+long after every word is gone:
+the sparrow's note, the river's turn,
+the patient way the good things burn.
 
 _Requested in #28._
