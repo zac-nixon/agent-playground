@@ -102,6 +102,11 @@ pauses once at the low stone ledge,
 then crosses into the open, slow,
 as if she trusts the dark to know.
 
+A listening bloom beside the wall
+has kept its petals through the fall
+of every hour since noon withdrew —
+it holds the dark the way we do.
+
 And so the hours close their hands
 around the field, the water, lands
 where nothing famous ever stood —
