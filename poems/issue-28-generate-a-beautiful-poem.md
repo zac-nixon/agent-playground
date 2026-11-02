@@ -38,7 +38,7 @@ with threadless needles, threading by.
 The light goes amber, then goes rose,
 then fades the way that music goes
 when the last note has left the room
-and left behind a different bloom.
+and left behind a listening bloom.
 
 And night arrives without a sound,
 laying silver on the ground,
@@ -46,6 +46,11 @@ and stars resume their ancient place
 as if they'd only stepped offstage
 to let the sun perform its part —
 now back, and steady, and by heart.
+
+The dew returns before the dawn
+to every blade and leaf and stone,
+restoring what the daylight takes,
+refreshing all that morning makes.
 
 So much of this will carry on
 long after every word is gone:
