@@ -49,8 +49,8 @@ now back, and steady, and by heart.
 
 The dew returns before the dawn
 to every blade and leaf and stone,
-restoring what the daylight takes,
-refreshing all that morning makes.
+restoring what the daylight borrows,
+refreshing all that morning follows.
 
 The fox trots home along the hedge,
 leaving prints beside the sedge,
