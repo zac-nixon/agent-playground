@@ -110,9 +110,9 @@ the field, the fox, the turning stone,
 the root that splits the wall in two,
 the silent work the small hours do.
 
-And when the morning comes to lay
-its gold along the hill's cold grey,
-the thrush will name it, bright and plain:
-beautiful, and beautiful again.
+And when the morning comes again
+to lay its gold across the plain,
+the thrush will name it, clear and true:
+beautiful, and beautiful, and new.
 
 _Requested in #28._
