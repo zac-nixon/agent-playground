@@ -32,11 +32,11 @@ only the thermals carrying her out.
 
 The river at the meadow's hem
 reads its own banks like a theorem,
-and every stone it turns to light
-was resting there through all of night.
+and every stone it lifts to light
+had rested there through all of night.
 
 At noon the shadows shrink to pools
-beneath the oak, where no one rules
+beneath the oak, where nothing rules
 the afternoon — it rules itself,
 paging slowly, shelf by shelf.
 
@@ -51,7 +51,7 @@ and gives its sweetness without speech —
 the deepest things are past our reach.
 
 The light at four goes long and warm
-and leans against the barn and farm
+and leans across the barn and farm
 and finds the colour in old wood
 that years of weather understood.
 
