@@ -12,8 +12,8 @@ stand straight again and hold the light.
 
 A thrush declares the morning good
 from somewhere in the dripping wood,
-and bees take up their ancient work
-above the flowers where they lurk.
+the swallows stitch the sky above
+with threadless needles made of love.
 
 The creek moves over stone and root
 with neither argument nor dispute,
@@ -27,8 +27,8 @@ between the water and the space.
 
 The orchard breathes its apple-scent
 through hours that are freely lent,
-and blossom turns on the slow air
-as though it had no weight to bear.
+and every listening bloom on the bough
+tilts toward the light, not knowing how.
 
 A beetle on a sun-warm stone
 carries its bright shell home alone,
@@ -55,11 +55,6 @@ with all the ease of stories told
 by someone who has time enough
 and does not need to rush the stuff.
 
-The cattle gather under oak,
-patient as unpronounced folk,
-their large eyes holding, like a well,
-a depth they have no need to tell.
-
 Then light tips west and shadows lean
 across the fence and deepen green,
 and every common, ordinary thing
@@ -80,11 +75,6 @@ behind the darkening open door
 of sky — they need no key, no call,
 they have been waiting, all and all.
 
-The fox slips through the uncut hedge
-and leaves a print beside the sedge;
-the rabbits ghost the silver grass
-and watch the barn owl, low, to pass.
-
 The owl's one note goes out and out
 across the valley like a doubt
 the darkness holds but will not keep —
@@ -104,11 +94,6 @@ A moth finds the unshuttered pane
 and circles back and back again,
 both the question and the flame,
 drawn to the light it cannot name.
-
-The cricket fills the dark with sound,
-a bright and threadlike underground,
-as if the sleeping earth were keeping
-one small song alive while the world is sleeping.
 
 And so it turns, and so it goes,
 the way a river always knows
