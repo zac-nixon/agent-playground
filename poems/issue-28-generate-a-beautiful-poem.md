@@ -16,9 +16,9 @@ one phrase, then one again, and then
 the whole of morning tries to open.
 
 A spider since the hour of four
-has strung the gate from door to door,
+has strung her silver door to door;
 each bead of dew a held refrain
-that only lasts until the rain.
+that trembles once, then yields to rain.
 
 The swallows stitch the sky all day
 with threadless needles, bright and grey,
@@ -43,17 +43,17 @@ to any beast and any man.
 A fox steps through the meadow's hem
 and the grasses close behind her, stem
 by stem, as if the field preferred
-to keep her passage unreferred.
+to keep her passing unreferred.
 
 At noon the light is everywhere
-and flattens colour into air,
-but still each clover holds its bloom
+and presses colour into air,
+yet still each clover holds its bloom
 like a small and listening room.
 
 The afternoon unpacks its gold
 across the furrows, loose and old,
 and every clod and every stone
-receives it as if called by name.
+receives the warmth as if called home.
 
 A hawk hangs on a hinge of wind
 and reads the field for what is pinned
@@ -83,7 +83,7 @@ the ancient patience, older still.
 The owl unlocks one single note
 that empties slowly from its throat
 and fills the valley, wall to wall,
-with something between call and fall.
+with something held between call and fall.
 
 The moon lifts over the eastern ridge
 and silvers gate and road and bridge,
@@ -118,7 +118,7 @@ but everything that falls is clean.
 The hours close their careful hands
 around the field, the water, lands
 where nothing famous ever grew —
-only the world, being true.
+only the world, quietly true.
 
 The night draws in its counted breath
 and holds the hours between life and death:
