@@ -20,7 +20,7 @@ the bright inheritance of shade.
 The swallows stitch the open sky
 with threadless needles, low and high,
 and every arc they cut and keep
-is a listening bloom the blue fields reap.
+is the living curve the blue fields reap.
 
 The river carries what it finds:
 the bent reflection of the pines,
@@ -91,6 +91,11 @@ The badger crosses the frosted track
 and does not once consider back,
 her dark stripe sure, her small feet set
 on ground she has not learned to forget.
+
+The field holds every note of cold
+the stars have had the time to fold
+into the earth — and still the ground
+keeps faith with what it once was found.
 
 And so the hours close their hands
 around the field, the water, lands
