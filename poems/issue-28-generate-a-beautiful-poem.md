@@ -91,7 +91,7 @@ the dark she moves through — only goes,
 her white stripe certain as she knows.
 
 A deer steps from the tree-line's seam
-and stands, a hesitation's dream,
+and stands inside a moment's dream,
 then crosses open ground, and slow,
 as if she trusts the dark to know.
 
