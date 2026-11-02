@@ -97,9 +97,9 @@ the stars have had the time to fold
 into the earth — and still the ground
 keeps faith with what it once was found.
 
-A deer steps out from the tree-line's edge,
+A deer steps from the tree-line's edge,
 pauses once at the low stone ledge,
-then crosses into the open, slow,
+then crosses to the open, slow,
 as if she trusts the dark to know.
 
 A listening bloom beside the wall
