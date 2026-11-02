@@ -57,6 +57,16 @@ leaving prints beside the sedge,
 and rabbits, bold in the half-dark,
 sit still as stones beside the bark.
 
+The owl calls once across the hill
+and the answering valley falls quite still;
+even the creek relents its rush
+and holds its breath inside the hush.
+
+The moon leans over field and fen
+and counts the sleeping world, and then
+draws one slow cloud across her face
+the way a thought withdraws to space.
+
 So much of this will carry on
 long after every word is gone:
 the sparrow's note, the river's turn,
