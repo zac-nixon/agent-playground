@@ -38,13 +38,13 @@ with threadless needles, threading by.
 The light goes amber, then goes rose,
 then fades the way that music goes
 when the last note has left the room
-and left behind a listening bloom.
+and silence holds a listening bloom.
 
 And night arrives without a sound,
 laying silver on the ground,
 and stars resume their ancient place —
-they'd only stepped aside offstage
-to let the sun perform its part,
+they'd only stepped aside to grace
+the sun with room to run its part,
 now back, and steady, and by heart.
 
 The dew returns before the dawn
