@@ -107,6 +107,11 @@ opens its white face to the late
 and silver hour, asking nothing more
 than to be what it was made for.
 
+The night gathers its dark and keeps
+everything it finds — the deeps
+of field and stream, the ridge, the lane,
+the web still bright with hanging rain.
+
 The hours close their quiet hands
 around the field, the water, lands
 where nothing famous ever stood —
