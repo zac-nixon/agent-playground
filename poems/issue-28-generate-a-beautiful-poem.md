@@ -35,7 +35,7 @@ the way the sea moves in a cave:
 it cannot stop and does not try;
 it simply answers the long sky.
 
-The oak tree holds its hundred years
+The oak holds fast its hundred years
 without complaint, without arrears,
 and gives the shade because it can
 to any beast and any man.
