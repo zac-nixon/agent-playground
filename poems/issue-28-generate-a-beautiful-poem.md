@@ -48,7 +48,7 @@ that shimmer long past what it saves.
 The poplar trees in still midday
 have nothing pressing left to say,
 their silver leaves turned to the sun
-as if a long argument were won.
+as if a long agreement won.
 
 A hawk describes a patient arc,
 a compass turning without a mark,
