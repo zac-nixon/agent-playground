@@ -42,9 +42,9 @@ and left behind a listening bloom.
 
 And night arrives without a sound,
 laying silver on the ground,
-and stars resume their ancient place
-as if they'd only stepped offstage
-to let the sun perform its part —
+and stars resume their ancient place —
+they'd only stepped aside offstage
+to let the sun perform its part,
 now back, and steady, and by heart.
 
 The dew returns before the dawn
