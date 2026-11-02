@@ -73,13 +73,13 @@ just breath enough to lift and lay
 the last loose threads of one more day.
 
 So much of this will carry on
-long after every word is gone:
+long after every word is gone —
 the sparrow's note, the river's turn,
 the patient way the good things burn.
 
 And if some morning, long from now,
 a stranger pauses at the plow
-and feels the light fall just this way —
+and feels the light fall just this way,
 no word will be enough to say
 how beauty asks for nothing more
 than open eyes and open door.
