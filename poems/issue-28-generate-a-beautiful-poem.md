@@ -1,43 +1,33 @@
 # Generate a beautiful poem
 
-The dawn pours honey through the trees
-and gilds the cobwebs hung with dew,
-where clover bends on amber knees
-and every blade of grass runs new.
+The morning breaks on silver hills,
+where amber light the valley fills,
+and dew-kissed petals, soft and bright,
+are trembling in the tender light.
 
-The rivers carry something old—
-a current deeper than the stone,
-they whisper what the mountains told
-to valleys learning to be grown.
+The river sings its ancient song,
+a winding hymn that flows along
+through willow shade and mossy stone,
+through every place the wind has blown.
 
-In spring the cherry blossoms break
-like quiet laughter in the air,
-they do not mourn the wind they make
-but scatter beauty everywhere.
+The sparrows call from bending bough,
+the world reborn again somehow,
+as if the night had never been,
+as if the stars were just a dream.
 
-In summer fields the crickets sing
-their one unwavering, endless note,
-as if the whole wide world could ring
-like music caught inside a throat.
+Beneath the oak whose roots run deep,
+old earth exhales its hallowed sleep,
+and wildflowers lean toward the sun,
+as if to say — the day's begun.
 
-The autumn turns its amber page
-and scribes the trees in rust and red,
-the leaves release without their rage,
-they fall as if they chose instead.
+So let this moment hold us still,
+beside the stream, beside the hill,
+where beauty lives not far away
+but here, and whole, and now, today.
 
-Then winter lays its silence down,
-a hush that softens every edge,
-it drapes in white the sleeping town
-and frosts the sparrow on the hedge.
-
-Between each turning, something stays—
-a thread that neither blooms nor grieves,
-the light that holds the length of days
-and outlasts both the frost and leaves.
-
-So wonder lives in turning things—
-in bud and blaze and bare cold light,
-in the small and fleeting grace that clings
-between the morning and the night.
+For lovely things are never lost
+to those who pause and count the cost
+of rushing past the gilded hours —
+the light, the rivers, and the flowers.
 
 _Requested in #28._
