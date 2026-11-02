@@ -1,102 +1,130 @@
 # Generate a beautiful poem
 
-The morning opens like a hand
-that offers light across the land,
-and every field that wakes to gold
-forgets the cold it used to hold.
+The dawn arrives on quiet feet
+and lays its gold across the wheat,
+and every shadow, thin and long,
+retracts like the last line of a song.
 
-The river reads its own long length
-and moves with unremarkable strength,
-bending where the willows lean
-to touch their own reflection's green.
+The meadow lifts its heavy dew
+to meet a sky of brightening blue,
+and all the blades that bowed with night
+stand straight again and hold the light.
 
-A sparrow on a fence post sings
-with no ambition but its wings,
-its small notes falling clear and bright
-as pebbles dropped in morning light.
+A thrush declares the morning good
+from somewhere in the dripping wood,
+and bees take up their ancient work
+above the flowers where they lurk.
+
+The creek moves over stone and root
+with neither argument nor dispute,
+turning the pebbles, cool and clear,
+as if the world were only here.
+
+A heron stands beside the bend,
+so still it seems the hours suspend,
+one grey idea held in place
+between the water and the space.
 
 The orchard breathes its apple-scent
-through hours neither spent nor lent,
-and blossom drifts without a care
-for where it lands or leaves the air.
+through hours that are freely lent,
+and blossom turns on the slow air
+as though it had no weight to bear.
 
-A beetle crosses one flat stone,
-armed with purpose and alone,
-its lacquered shell a living bead
-that catches light it does not need.
+A beetle on a sun-warm stone
+carries its bright shell home alone,
+lacquered black and tipped with green —
+the smallest kingdom ever seen.
 
-By afternoon the shadows grow
-and lengthen with a kind of slow
-and golden gravity, the way
-a good thought settles in a day.
+By noon the fields lie wide and warm
+and heat assembles its slow form
+above the grass in silver waves
+that neither harm nor help nor saves.
 
-The cattle stand in cooling shade,
-untroubled by the world they've made,
-their patience like a prayer that needs
-no words — just grass, and cloud, and reeds.
+The poplar trees in still midday
+have nothing pressing left to say,
+their silver leaves turned to the sun
+as if an argument were won.
 
-Then evening stills the meadow's hum
-and draws the swallows homeward, some
-so swift they seem to stitch the sky
-with threadless needles, threading by.
+A hawk describes a patient arc,
+a compass point without a mark,
+reading the land the way we read
+a page we follow past our need.
 
-The light turns amber, deepens rose,
-then fades the way that music goes
-when the last note has left the room
-and silence holds a listening bloom.
+The afternoon moves through its gold
+with all the ease of stories told
+by someone who has time enough
+and does not need to rush the stuff.
 
-And night arrives without a sound,
-laying silver on the ground,
-and stars resume their ancient place —
-they'd only stepped aside to grace
-the sun with room to run its part,
-now back, and steady, and by heart.
+The cattle gather under oak,
+patient as unpronounced folk,
+their large eyes holding, like a well,
+a depth they have no need to tell.
 
-The dew returns before the dawn
-to every blade and leaf and stone,
-restoring what the daylight borrows,
-refreshing all that morning follows.
+Then light tips west and shadows lean
+across the fence and deepen green,
+and every common, ordinary thing
+takes on the quiet weight of evening.
 
-The fox trots home along the hedge,
-leaving prints beside the sedge,
-and rabbits, bold in the blue half-dark,
-lit briefly white against the bark.
+The swallows cut the amber air
+in arcs too swift to follow where,
+as if they spent the whole bright day
+learning how to give it away.
 
-The owl calls once across the hill
-and the answering valley falls quite still;
-even the creek forgoes its rush
-and holds its breath inside the hush.
+The dusk moves in from field to lane,
+brings the scent of cooling grain,
+and one by one the farmhouse lights
+open their soft eyes on the night.
 
-The moon surveys the field and fen
-and counts the sleeping world, and then
-draws one slow cloud across her face
+The stars appear, first one, then more,
+behind the darkening open door
+of sky — they need no key, no call,
+they have been waiting, all and all.
+
+The fox slips through the uncut hedge
+and leaves a print beside the sedge;
+the rabbits ghost the silver grass
+and watch the barn owl, low, to pass.
+
+The owl's one note goes out and out
+across the valley like a doubt
+the darkness holds but will not keep —
+it fades, and everything finds sleep.
+
+The moon moves over field and fen
+and numbers all the world, and then
+she draws a cloud across her face
 the way a thought withdraws to space.
 
-The wind moves through the standing wheat —
-a whisper neither cold nor sweet,
-just breath enough to lift and lay
-the last loose threads of one more day.
+The wind stirs once along the wheat —
+a breath that's neither cold nor sweet —
+just enough to lift and lay
+the final threads of one more day.
 
 A moth finds the unshuttered pane
 and circles back and back again,
-drawn to the light it cannot name,
-both the question and the flame.
+both the question and the flame,
+drawn to the light it cannot name.
 
 The cricket fills the dark with sound,
-a small bright stitch of underground,
-as if the earth itself were keeping
-a song awake while the world is sleeping.
+a bright and threadlike underground,
+as if the sleeping earth were keeping
+one small song alive while the world is sleeping.
+
+And so it turns, and so it goes,
+the way a river always knows
+the sea without a map or sign —
+the long curve holding its design.
 
 So much of this will carry on
-long after every word is gone —
-the sparrow's note, the river's turn,
+long after every word is gone:
+the thrush's note, the creek's low turn,
 the patient way the good things burn.
 
 And if some morning, years from now,
-a stranger pauses at the plow
-and feels the light fall just this way,
+a stranger rests a hand on the plow
+and feels the light fall just this way —
 no word will be enough to say
 how beauty asks for nothing more
-than open eyes and open door.
+than open eyes, and open door.
 
 _Requested in #28._
