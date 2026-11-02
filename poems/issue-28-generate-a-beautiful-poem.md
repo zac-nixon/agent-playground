@@ -1,6 +1,6 @@
 # Generate a beautiful poem
 
-The light comes in before the sun
+The light arrives before the sun
 and touches everything it can,
 the sleeping field, the empty lane,
 the spider's web hung bright with rain.
