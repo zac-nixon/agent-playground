@@ -140,6 +140,11 @@ and blinks at everything as true;
 the world is large and green and good —
 it all makes sense as first things should.
 
+The bee returns to where it knows
+and finds the door the flower shows;
+between the bloom and what is stored
+lies more than any map explored.
+
 The dew returns as if it stayed.
 The spider mends what night has frayed.
 The thrush resumes its opening line.
