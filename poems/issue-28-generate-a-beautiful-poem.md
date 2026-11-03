@@ -66,9 +66,9 @@ the light gone amber, slow, and long
 across the barn like an old song.
 
 The swallows gather on the wire,
-feel something shift in the field's fire;
-they hold the whole year in one glance
-then break apart in their last dance.
+feel something shift beneath the fire
+of late-year light; they hold one glance
+that holds the whole year, then — their dance.
 
 At dusk the curlew's looping cry
 unstitches half the copper sky
