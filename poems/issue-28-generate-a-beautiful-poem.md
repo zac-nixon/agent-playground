@@ -56,8 +56,8 @@ rewriting every stone it turns
 with what the patient water learns.
 
 At noon the shadows gather in
-beneath the oak where light grows thin
-and cool enough to keep a thought
+beneath the oak where light grows thin,
+cool enough to keep a thought
 the wide and wandering morning caught.
 
 The afternoon arrives unbought,
@@ -86,7 +86,7 @@ know every hinge the darkness keeps
 and step right through while the farmhouse sleeps.
 
 An owl unstitches night from night
-with questions no one gets quite right,
+with questions no one gets quite right
 and finds that asking is enough —
 the dark grows kind, the landing soft.
 
