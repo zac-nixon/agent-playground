@@ -43,7 +43,7 @@ indifferent to the passing flock.
 A kestrel finds the still inside
 the wind and uses it to ride
 above the verge, above the lane —
-a burning eye inside the mane.
+a burning point of gold in grain.
 
 The clover lifts a listening bloom
 and lets the bees read what they presume;
@@ -62,7 +62,7 @@ the wide and wandering morning caught.
 
 The afternoon arrives unbought,
 the light gone amber, slow, and long
-across the barn — a kind of song
+across the barn — a quiet song
 that has no need of being taught.
 
 The swallows gather on the wire
