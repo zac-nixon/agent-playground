@@ -130,10 +130,10 @@ makes no complaint and makes no sound,
 only holds the shape of what it knows
 and waits for warmth before it shows.
 
-And then the thrush begins again
-and names the light before it's plain,
-and everything the day will be
-opens out in that first three-note key.
+The thrush sings back the edge of day
+and names the light before it's grey,
+and everything the morning gives
+opens out wherever beauty lives.
 
 The dew returns as if it stayed.
 The spider mends what night has frayed.
