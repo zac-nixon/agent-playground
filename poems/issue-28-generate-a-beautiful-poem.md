@@ -1,158 +1,33 @@
 # Generate a beautiful poem
 
-The dawn arrives without a drum
-and finds the valley cold and numb,
-but light already knows the way
-it means to spend the coming day.
+The morning light spills soft across the hill,
+and golden grasses bow beneath the breeze,
+the river hums its old, unhurried trill,
+and sunlight filters amber through the trees.
 
-The mist lies low across the fen
-and will not answer why or when;
-it has its own unhurried cause
-and thins in time without applause.
+A hawk describes its circle in the blue,
+the clouds drift slow like thoughts too wide to hold,
+the meadow wears its immemorial dew,
+and every stone along the path is old.
 
-A thrush begins before the sun
-as if the singing were what won
-the light across the eastern rim —
-perhaps the morning waits for him.
+Yet beauty is not only ancient things —
+it lives inside the laugh that breaks too soon,
+the urgent joy a child's quick running brings,
+the way a friend's voice rises like a tune.
 
-The spider on the old stone post
-has worked all night and guards her most
-precarious art: a web of dew
-that holds the dark inside the blue.
+It hides in bread still warm inside your hand,
+in letters worn to softness on a page,
+in storms that help us finally understand
+how small and bright we are at every age.
 
-The swifts come out to stitch the sky
-with threadless needles, looping high,
-each arc a word in some bright tongue
-the air has always left unsung.
+So let us name the beautiful today:
+the heron standing patient in the shallows,
+the scent of rain just seconds on its way,
+the light that stays long after evening follows.
 
-The field opens a green so clear
-it seems to speak to those who hear,
-and every blade a burning glass
-that names the wind before it passes.
-
-The heron stands beside the stream
-as patient as a half-held dream,
-then lifts without a sound or sign
-before your wondering crosses mine.
-
-The oak consults its oldest rings
-while underfoot the ivy clings
-and keeps its own deliberate clock,
-indifferent to the passing flock.
-
-A kestrel finds the still inside
-the wind and uses it to ride
-above the verge, above the lane —
-a burning point above the grain.
-
-The clover lifts a listening bloom
-and lets the bees read what they presume;
-the sweetest knowledge travels far
-from where the smallest wonders are.
-
-The river at the meadow's hem
-unravels like a theorem,
-rewriting every stone it turns
-with what the patient water learns.
-
-At noon the shadows gather in
-beneath the oak where light grows thin,
-cool enough to keep a thought
-the wide and wandering morning caught.
-
-The afternoon arrives unbought,
-the light gone amber, slow, and long
-across the barn — a wordless song
-that has no need of being taught.
-
-The swallows gather on the wire
-and feel the season's slow retire;
-they share one glance that holds the year
-then wheel as one and disappear.
-
-At dusk the curlew's looping cry
-unstitches half the copper sky
-and lets the silence back inside,
-larger than what it had to hide.
-
-The moon arrives and takes no bow,
-just silverplates the barn and brow
-of every hill, the lane, the gate,
-and all the things that chose to wait.
-
-The fox moves through the standing wheat
-and hardly bends a blade; her feet
-know every hinge the darkness keeps
-and step right through while the farmhouse sleeps.
-
-An owl unstitches night from night
-with questions no one gets quite right
-and finds that asking is enough —
-the dark grows kind, the landing soft.
-
-The river does not cease because
-the dark has come; it never paused
-for shadow, stone, or human name —
-it gives exactly what it came.
-
-The stars lay out their eldest chart
-across the gulf between depart
-and arrive — that bright and ancient grammar
-lit before our first word or clamour.
-
-The barn holds silence like a vault
-below the rafters, never at fault,
-where bats on courses darkness draws
-beat softly past the open doors.
-
-The wind moves through the sleeping vale
-and carries neither news nor tale,
-but every blade and branch it bends
-knows something of how stillness ends.
-
-The hedgehog crosses the dark lane
-and does not look for loss or gain;
-she carries only what she needs
-and leaves no mark among the weeds.
-
-The bulb beneath the frozen ground
-makes no complaint and gives no sound;
-it simply holds the shape it knows
-and trusts the warmth before it shows.
-
-The frost retires without a word
-and leaves the cobweb cold but furred
-with light — the latch releases clean
-and all the world is fit to be seen.
-
-The clouds release a quiet rain
-that asks for nothing back again;
-each drop a brief and bright descent
-that spends itself and is content.
-
-The stone wall holds its patient seam
-through weather, frost, and flood and gleam;
-each placed rock a word in trust
-that something steady outlasts dust.
-
-The lamb stands new beside the ewe
-and blinks at everything as true;
-the world is large and green and good —
-it all makes sense as first things should.
-
-The bee returns to where it knows
-and finds the door the flower shows;
-between the bloom and what is stored
-lies more than any map explored.
-
-The dew returns as if it stayed.
-The spider mends what night has frayed.
-The thrush resumes its opening line.
-The beautiful does not decline.
-
-And so the wheel completes its turn,
-and what the long day came to learn
-slips back into the earth's deep keep
-to hold until the next dawn's leap.
+There is no end to what the eye can keep,
+no limit set upon what wonder grows —
+beauty is the promise, wide and deep,
+that even now, somewhere, a wild thing goes.
 
 _Requested in #28._
