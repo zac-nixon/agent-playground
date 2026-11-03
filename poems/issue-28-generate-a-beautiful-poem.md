@@ -100,6 +100,16 @@ is when the whole world simply waits
 without impatience, without need —
 a breath held in an open creed.
 
+The hedgerow hides a hundred lives
+that pass without a sound — what thrives
+in small and secret dark reveals
+how full the world is when it heals.
+
+The stone in the wall was set by hands
+that trusted more than they had planned:
+that what they built would hold the cold
+and still be standing, centuries old.
+
 And then the thrush begins again
 and names the light before it's plain,
 and everything the day will be
