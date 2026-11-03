@@ -32,7 +32,7 @@ that names the wind as it will pass.
 
 The heron stands beside the stream
 as patient as a half-held dream,
-then folds itself into the sky
+then lifts itself into the sky
 before you've finished asking why.
 
 The oak consults its oldest rings
