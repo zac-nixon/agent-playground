@@ -32,8 +32,8 @@ that names the wind as it will pass.
 
 The heron stands beside the stream
 as patient as a half-held dream,
-then lifts itself without a sound
-before your wondering comes around.
+then lifts without a sound or sign
+before your wondering crosses mine.
 
 The oak consults its oldest rings
 while underfoot the ivy clings
