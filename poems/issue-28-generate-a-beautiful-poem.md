@@ -32,8 +32,8 @@ that names the wind as it will pass.
 
 The heron stands beside the stream
 as patient as a half-held dream,
-then lifts itself into the sky
-before you've finished asking why.
+then lifts itself without a sound
+before your wondering comes around.
 
 The oak consults its oldest rings
 while underfoot the ivy clings
@@ -67,7 +67,7 @@ that has no need of being taught.
 
 The swallows gather on the wire
 and feel the season's slow retire;
-they hold one glance that holds the year
+they share one glance that holds the year
 then wheel away and disappear.
 
 At dusk the curlew's looping cry
