@@ -110,6 +110,11 @@ and carries neither news nor tale,
 but every blade and branch it bends
 knows something of how stillness ends.
 
+The hedgehog crosses the dark lane
+and does not look for loss or gain;
+she carries only what she needs
+and leaves no mark among the weeds.
+
 The bulb beneath the frozen ground
 makes no complaint and gives no sound;
 it simply holds the shape it knows
