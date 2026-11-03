@@ -43,7 +43,7 @@ indifferent to the passing flock.
 A kestrel finds the still inside
 the wind and uses it to ride
 above the verge, above the lane —
-a burning point of gold in grain.
+a burning point above the grain.
 
 The clover lifts a listening bloom
 and lets the bees read what they presume;
@@ -55,20 +55,20 @@ unravels like a theorem,
 rewriting every stone it turns
 with what the patient water learns.
 
-At noon the shadows pull back in
+At noon the shadows gather in
 beneath the oak where light grows thin
 and cool enough to keep a thought
 the wide and wandering morning caught.
 
 The afternoon arrives unbought,
 the light gone amber, slow, and long
-across the barn — a quiet song
+across the barn — a wordless song
 that has no need of being taught.
 
 The swallows gather on the wire
 and feel the season's slow retire;
 they share one glance that holds the year
-then wheel away and disappear.
+then wheel as one and disappear.
 
 At dusk the curlew's looping cry
 unstitches half the copper sky
@@ -96,7 +96,7 @@ for shadow, stone, or human name —
 it gives exactly what it came.
 
 The stars lay out their eldest chart
-across the black between depart
+across the space between depart
 and arrive — that same bright grammar
 lit before our first word, or clamour.
 
