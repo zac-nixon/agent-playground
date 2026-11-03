@@ -45,10 +45,10 @@ beneath the oak, where light grows thin
 and cool enough to hold a thought —
 the afternoon arrives unbought.
 
-A kestrel holds the sky in place
-by standing still in moving air,
-its eye a point of perfect grace
-that names each thing below with care.
+A kestrel holds the whole sky still
+by standing firm against the spill
+of wind, its eye a burning glass
+that names each thing before they pass.
 
 The clover lifts a listening bloom
 toward the bee that fills its room,
