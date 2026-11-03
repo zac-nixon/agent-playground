@@ -28,7 +28,7 @@ the air has always left unsung.
 The field opens a green so clear
 it seems to speak to those who hear,
 and every blade a burning glass
-that names the wind as it will pass.
+that names the wind before it pass.
 
 The heron stands beside the stream
 as patient as a half-held dream,
@@ -88,7 +88,7 @@ and step right through while the farmhouse sleeps.
 An owl unstitches night from night
 with questions no one gets quite right,
 and finds that asking is enough —
-the dark is not so dark, nor rough.
+the dark grows kind, the landing soft.
 
 The river does not cease because
 the dark has come; it never paused
