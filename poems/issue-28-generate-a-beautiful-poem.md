@@ -38,12 +38,12 @@ before you've finished asking why.
 The oak consults its oldest rings
 while underfoot the ivy clings
 and keeps its own deliberate clock,
-indifferent to the changing flock.
+indifferent to the passing flock.
 
 A kestrel finds the still inside
 the wind and uses it to ride
 above the verge, above the lane —
-a burning eye in the wind's mane.
+a burning eye inside the mane.
 
 The clover lifts a listening bloom
 and lets the bees read what they presume;
@@ -58,17 +58,17 @@ with what the patient water learns.
 At noon the shadows pull back in
 beneath the oak where light grows thin
 and cool enough to keep a thought
-that the wide morning nearly caught.
+the wide and wandering morning caught.
 
-The afternoon arrives unbought
-and longer than the morning thought,
+The afternoon arrives unbought,
 the light gone amber, slow, and long
-across the barn like an old song.
+across the barn — a kind of song
+that has no need of being taught.
 
-The swallows gather on the wire,
-feel something shift beneath the fire
-of late-year light; they hold one glance
-that holds the whole year, then — their dance.
+The swallows gather on the wire
+and feel the season's slow retire;
+they hold one glance that holds the year
+then wheel away and disappear.
 
 At dusk the curlew's looping cry
 unstitches half the copper sky
@@ -92,12 +92,12 @@ the dark is not so dark, nor rough.
 
 The river does not cease because
 the dark has come; it never paused
-for any shadow, any stone —
-it gives exactly what it's known.
+for shadow, stone, or human name —
+it gives exactly what it came.
 
 The stars lay out their eldest chart
 across the black between depart
-and arrive — the same bright grammar
+and arrive — that same bright grammar
 lit before our first word, or clamour.
 
 The barn holds silence like a vault
