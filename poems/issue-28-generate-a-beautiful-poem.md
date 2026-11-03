@@ -145,4 +145,9 @@ The spider mends what night has frayed.
 The thrush resumes its opening line.
 The beautiful does not decline.
 
+And so the wheel completes its turn,
+and what the long day came to learn
+slips back into the earth's deep keep
+to hold until the next dawn's leap.
+
 _Requested in #28._
