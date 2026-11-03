@@ -1,143 +1,123 @@
 # Generate a beautiful poem
 
-The morning opens like a hand
-that offers more than it had planned:
-the dew, the grass, the tilting light,
-the last moths folding back to night.
+The dawn arrives without a drum
+and finds the valley cold and numb,
+but light already knows the way
+it means to spend the coming day.
 
-A wren lifts from the mossy wall
-and makes its bright declarative call,
-one phrase the whole field stops to hear,
-then everything resumes its year.
+The mist lies low across the fen
+and will not answer why or when,
+it has its own unhurried cause
+and thins in time without applause.
 
-The swifts come out to stitch the sky
-with threadless needles, low then high,
-each arc a seam between two blues —
-the one they leave, the one they choose.
+A thrush begins before the sun
+as if the singing were what won
+the light across the eastern rim —
+perhaps the morning waits for him.
 
-The mist sits in the lower lane
-and will not be commanded — plain
-and patient as a thing that knows
-it only ever thins, not goes.
+The spider on the old stone post
+has worked all night and guards her most
+precarious art: a web of dew
+that holds the dark and the new blue.
 
-The spider on the gate-post keeps
-her web's cartography while she sleeps,
-each thread a road between two points
-where night and morning share their joints.
+The swifts come out to sign the air
+with cursive flight beyond compare,
+each loop a letter in a tongue
+the sky has always left unsung.
 
-A heron lifts on wide slow wings
-and rises past the need for things
-like speed or reason, haste or doubt —
-only the thermals carrying her out.
+The field opens a green so bright
+it seems to give, not borrow, light,
+and every blade a burning glass
+that names the wind as it will pass.
+
+The heron stands beside the stream
+as patient as a half-held dream,
+then folds itself into the sky
+before you've finished asking why.
+
+The oak consults its oldest rings
+while underfoot the ivy clings
+and keeps its own deliberate clock,
+indifferent to the changing flock.
+
+A kestrel finds the still inside
+the wind and uses it to ride
+above the verge, above the lane,
+a burning eye in the wind's mane.
+
+The clover in the lower field
+lifts every secret that it's sealed
+into a bloom the bees can read —
+the sweetest things refuse our creed.
 
 The river at the meadow's hem
-reads its own banks like a theorem,
-and every stone it turns to light
-had rested cold through all of night.
-
-The rain that fell in April still
-is travelling, slow, beneath the hill,
-finding the root, the seam, the well —
-water remembers where to dwell.
+unravels like a theorem,
+rewriting every stone it turns
+with what the patient water learns.
 
 At noon the shadows pull back in
-beneath the oak, where light grows thin
-and cool enough to hold a thought —
-the afternoon arrives unbought.
+beneath the oak where light grows thin
+and cool enough to keep a thought
+that the wide morning nearly caught.
 
-A kestrel holds the whole sky still
-by standing firm against the spill
-of wind, its eye a burning glass
-that names each thing before they pass.
+The afternoon arrives unbought
+and longer than the morning thought,
+the light gone amber, slow, and long
+across the barn like an old song.
 
-The clover lifts a listening bloom
-toward the bee that fills its room,
-and gives its sweetness without speech —
-the deepest things are past our reach.
+The swallows gather on the wire,
+feel something shift in the field's fire —
+they hold the whole year in one glance
+then break in their departing dance.
 
-The light at four goes long and warm
-and leans across the barn and farm,
-and finds the colour in old wood
-that years of weathering understood.
+At dusk the curlew's looping cry
+unstitches half the copper sky
+and lets the silence back inside,
+larger than what it had to hide.
 
-The swallows gather on the wire
-and feel the pull of changing fire
-in shortening days, in cooling air —
-they hold the whole year in their stare.
-
-At dusk the curlew's spiral cry
-unwinds beneath a copper sky
-and lets the silence fill back in,
-larger now where dark begins.
-
-The moon arrives without a knock
-and silverplates the weathercock,
-the lane, the field, the unmown verge,
-the place where all the old paths merge.
-
-An owl asks its patient liturgy
-of darkness, field, and passing — free
-from any answer it might need:
-the question is itself a creed.
+The moon arrives and takes no bow,
+just silverplates the barn and brow
+of every hill, the lane, the gate,
+and all the things that chose to wait.
 
 The fox moves through the standing wheat
-and barely bends a blade, her feet
-so certain of the way things lie
-she needs no lantern from the sky.
+and hardly bends a blade; her feet
+know every hinge the darkness keeps
+and step right through while the farmhouse sleeps.
+
+An owl unstiches night from night
+with questions no one gets quite right,
+and finds that asking is enough —
+the dark is not so dark, nor rough.
 
 The river does not cease because
-the night has come — it never paused
-for any dark, for any dawn,
-it only gives what it has drawn.
+the dark has come; it never paused
+for any shadow, any stone —
+it gives exactly what it's known.
 
-The stars arrange their ancient text
-across the black between what's next
-and what already was — the same
-old scripture, luminous, unnamed.
+The stars lay out their eldest chart
+across the black between depart
+and arrive — the same bright grammar
+lit before our first word, or clamour.
 
-The hour before the morning breaks
-is when the whole world simply waits
-without impatience, without need —
-a breath held open, not a creed.
+The barn holds silence like a vault
+below the rafters, never at fault,
+where bats on courses darkness draws
+beat softly past the open doors.
 
-The hedgerow hides a hundred lives
-that pass without a sound — what thrives
-in small and secret dark reveals
-how full the world is when it heals.
+The bulb beneath the frozen ground
+makes no complaint and gives no sound,
+it simply holds the shape it knows
+and trusts the warmth before it shows.
 
-The stone in the wall was set by hands
-that trusted more than they had planned:
-that what they built would hold the cold
-and still be standing, centuries old.
-
-The dormouse tucked inside the hedge
-breathes slowly at its season's edge,
-its small heart keeping its own time
-through all the dark, through frost and rime.
-
-The barn holds silence like a gift
-below the rafters where bats drift
-on courses only darkness charts —
-the night has its own beating hearts.
-
-The frost arrives on soundless feet
-and claims the furrow and the beet,
-the cobweb and the iron latch,
-the gate too cold for hands to catch.
-
-And yet the bulb beneath the ground
-makes no complaint and makes no sound,
-only holds the shape of what it knows
-and waits for warmth before it shows.
-
-The thrush sings back the edge of day
-and names the light before it's grey,
-and everything the morning gives
-opens out wherever beauty lives.
+The frost retires without a word
+and leaves the cobweb cold but furred
+with light; the latch releases clean;
+the world again is fit to be seen.
 
 The dew returns as if it stayed.
 The spider mends what night has frayed.
-The heron lifts above the bend.
-The beautiful does not end.
+The thrush resumes its opening line.
+The beautiful does not decline.
 
 _Requested in #28._
