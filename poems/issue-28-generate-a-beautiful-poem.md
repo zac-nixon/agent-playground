@@ -125,6 +125,21 @@ and leaves the cobweb cold but furred
 with light; the latch releases clean —
 the world again is fit to be seen.
 
+The clouds release a quiet rain
+that asks for nothing back again;
+each drop a brief and bright descent
+that spends itself and is content.
+
+The stone wall holds its patient seam
+through weather, frost, and flood and gleam;
+each placed rock a word in trust
+that something steady outlasts dust.
+
+The lamb stands new beside the ewe
+and blinks at everything as true;
+the world is large and green and good —
+it all makes sense as first things should.
+
 The dew returns as if it stayed.
 The spider mends what night has frayed.
 The thrush resumes its opening line.
