@@ -1,7 +1,7 @@
 # Generate a beautiful poem
 
 The morning opens like a hand
-that offers everything it planned:
+that offers more than it had planned:
 the dew, the grass, the tilting light,
 the last moths folding back to night.
 
@@ -12,7 +12,7 @@ then everything resumes its year.
 
 The swifts come out to stitch the sky
 with threadless needles, low then high,
-each arc a stitch between two blues —
+each arc a seam between two blues —
 the one they leave, the one they choose.
 
 The mist sits in the lower lane
@@ -33,7 +33,7 @@ only the thermals carrying her out.
 The river at the meadow's hem
 reads its own banks like a theorem,
 and every stone it turns to light
-had rested there through all of night.
+had rested cold through all of night.
 
 The rain that fell in April still
 is travelling, slow, beneath the hill,
@@ -56,9 +56,9 @@ and gives its sweetness without speech —
 the deepest things are past our reach.
 
 The light at four goes long and warm
-and leans across the barn and farm
+and leans across the barn and farm,
 and finds the colour in old wood
-that years of weather understood.
+that years of weathering understood.
 
 The swallows gather on the wire
 and feel the pull of changing fire
@@ -75,10 +75,10 @@ and silverplates the weathercock,
 the lane, the field, the unmown verge,
 the place where all the old paths merge.
 
-An owl sits in the hollow tree
-and asks its patient liturgy
-of darkness, field and passing air —
-the question is its own answer there.
+An owl asks its patient liturgy
+of darkness, field, and passing — free
+from any answer it might need:
+the question is itself a creed.
 
 The fox moves through the standing wheat
 and barely bends a blade, her feet
@@ -93,7 +93,7 @@ it only gives what it has drawn.
 The stars arrange their ancient text
 across the black between what's next
 and what already was — the same
-old scripture, luminous and unnamed.
+old scripture, luminous, unnamed.
 
 The hour before the morning breaks
 is when the whole world simply waits
