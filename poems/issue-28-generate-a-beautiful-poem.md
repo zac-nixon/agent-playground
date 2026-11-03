@@ -122,8 +122,8 @@ and trusts the warmth before it shows.
 
 The frost retires without a word
 and leaves the cobweb cold but furred
-with light; the latch releases clean —
-the world again is fit to be seen.
+with light — the latch releases clean
+and all the world is fit to be seen.
 
 The clouds release a quiet rain
 that asks for nothing back again;
