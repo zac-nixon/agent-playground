@@ -97,7 +97,7 @@ it gives exactly what it came.
 
 The stars lay out their eldest chart
 across the space between depart
-and arrive — that same bright grammar
+and arrive — that bright and ancient grammar
 lit before our first word, or clamour.
 
 The barn holds silence like a vault
