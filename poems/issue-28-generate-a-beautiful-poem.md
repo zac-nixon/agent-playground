@@ -6,7 +6,7 @@ but light already knows the way
 it means to spend the coming day.
 
 The mist lies low across the fen
-and will not answer why or when,
+and will not answer why or when;
 it has its own unhurried cause
 and thins in time without applause.
 
@@ -18,15 +18,15 @@ perhaps the morning waits for him.
 The spider on the old stone post
 has worked all night and guards her most
 precarious art: a web of dew
-that holds the dark and the new blue.
+that holds the dark inside the blue.
 
-The swifts come out to sign the air
-with cursive flight beyond compare,
-each loop a letter in a tongue
-the sky has always left unsung.
+The swifts come out to stitch the sky
+with threadless needles, looping high,
+each arc a word in some bright tongue
+the air has always left unsung.
 
-The field opens a green so bright
-it seems to give, not borrow, light,
+The field opens a green so clear
+it seems to speak to those who hear,
 and every blade a burning glass
 that names the wind as it will pass.
 
@@ -42,13 +42,13 @@ indifferent to the changing flock.
 
 A kestrel finds the still inside
 the wind and uses it to ride
-above the verge, above the lane,
+above the verge, above the lane —
 a burning eye in the wind's mane.
 
-The clover in the lower field
-lifts every secret that it's sealed
-into a bloom the bees can read —
-the sweetest things refuse our creed.
+The clover lifts a listening bloom
+and lets the bees read what they presume;
+the sweetest knowledge travels far
+from where the smallest wonders are.
 
 The river at the meadow's hem
 unravels like a theorem,
@@ -66,9 +66,9 @@ the light gone amber, slow, and long
 across the barn like an old song.
 
 The swallows gather on the wire,
-feel something shift in the field's fire —
+feel something shift in the field's fire;
 they hold the whole year in one glance
-then break in their departing dance.
+then break apart in their last dance.
 
 At dusk the curlew's looping cry
 unstitches half the copper sky
@@ -85,7 +85,7 @@ and hardly bends a blade; her feet
 know every hinge the darkness keeps
 and step right through while the farmhouse sleeps.
 
-An owl unstiches night from night
+An owl unstitches night from night
 with questions no one gets quite right,
 and finds that asking is enough —
 the dark is not so dark, nor rough.
@@ -106,7 +106,7 @@ where bats on courses darkness draws
 beat softly past the open doors.
 
 The bulb beneath the frozen ground
-makes no complaint and gives no sound,
+makes no complaint and gives no sound;
 it simply holds the shape it knows
 and trusts the warmth before it shows.
 
