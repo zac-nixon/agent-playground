@@ -65,10 +65,10 @@ and feel the pull of changing fire
 in shortening days, in cooling air —
 they hold the whole year in their stare.
 
-At dusk a curlew's spiral call
-unwinds and lets the silence fall
-back in around it, larger now,
-the way the dark fulfils a vow.
+At dusk the curlew's spiral cry
+unwinds beneath a copper sky
+and lets the silence fill back in,
+larger now where dark begins.
 
 The moon arrives without a knock
 and silverplates the weathercock,
