@@ -122,7 +122,7 @@ and trusts the warmth before it shows.
 
 The frost retires without a word
 and leaves the cobweb cold but furred
-with light; the latch releases clean;
+with light; the latch releases clean —
 the world again is fit to be seen.
 
 The dew returns as if it stayed.
