@@ -105,6 +105,11 @@ below the rafters, never at fault,
 where bats on courses darkness draws
 beat softly past the open doors.
 
+The wind moves through the sleeping vale
+and carries neither news nor tale,
+but every blade and branch it bends
+knows something of how stillness ends.
+
 The bulb beneath the frozen ground
 makes no complaint and gives no sound;
 it simply holds the shape it knows
