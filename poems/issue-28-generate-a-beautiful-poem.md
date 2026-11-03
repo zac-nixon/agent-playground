@@ -98,7 +98,7 @@ old scripture, luminous, unnamed.
 The hour before the morning breaks
 is when the whole world simply waits
 without impatience, without need —
-a perfect, held, unhurried creed.
+a breath held in an open creed.
 
 And then the thrush begins again
 and names the light before it's plain,
