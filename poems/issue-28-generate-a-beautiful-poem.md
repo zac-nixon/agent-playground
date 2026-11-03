@@ -110,6 +110,26 @@ that trusted more than they had planned:
 that what they built would hold the cold
 and still be standing, centuries old.
 
+The dormouse tucked inside the hedge
+breathes slowly at its season's edge,
+its small heart keeping its own time
+through all the dark, through frost and rime.
+
+The barn holds silence like a gift
+below the rafters where bats drift
+on courses only darkness charts —
+the night has its own beating hearts.
+
+The frost arrives on soundless feet
+and claims the furrow and the beet,
+the cobweb and the iron latch,
+the gate too cold for hands to catch.
+
+And yet the bulb beneath the ground
+makes no complaint and makes no sound,
+only holds the shape of what it knows
+and waits for warmth before it shows.
+
 And then the thrush begins again
 and names the light before it's plain,
 and everything the day will be
