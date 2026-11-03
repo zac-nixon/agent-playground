@@ -98,7 +98,7 @@ old scripture, luminous, unnamed.
 The hour before the morning breaks
 is when the whole world simply waits
 without impatience, without need —
-a breath held in an open creed.
+a breath held open, not a creed.
 
 The hedgerow hides a hundred lives
 that pass without a sound — what thrives
