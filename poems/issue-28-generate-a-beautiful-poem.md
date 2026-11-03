@@ -28,7 +28,7 @@ the air has always left unsung.
 The field opens a green so clear
 it seems to speak to those who hear,
 and every blade a burning glass
-that names the wind before it pass.
+that names the wind before it passes.
 
 The heron stands beside the stream
 as patient as a half-held dream,
