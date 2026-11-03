@@ -96,9 +96,9 @@ for shadow, stone, or human name —
 it gives exactly what it came.
 
 The stars lay out their eldest chart
-across the space between depart
+across the gulf between depart
 and arrive — that bright and ancient grammar
-lit before our first word, or clamour.
+lit before our first word or clamour.
 
 The barn holds silence like a vault
 below the rafters, never at fault,
